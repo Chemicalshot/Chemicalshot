@@ -15,3 +15,12 @@ $${\textsf{\color{#000000} }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\
 <p align="center"> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#946cc4}GitHub "read me" made by Toast}}$$
 <a href="https://github.com/Sugar-coatedtoast">Click me!</a> </p>
 
+### Titles:
+
+[PT Hall of media](https://github.com/pt-hall-of-media) as Circus Baby !
+
+[PT Contributers](https://github.com/pt-contributers) as Wemmbu !
+
+[PT Fashion](https://github.com/pt-fashion) as Adelaide !
+
+[PT Walk Of Fame](https://github.com/pt-walk-of-fame) in the Category "Online 24/7" and as Dol9hin !
