@@ -1,16 +1,17 @@
-## Hi there 👋
+<img width="720" height="405" alt="1000138492" src="https://github.com/user-attachments/assets/f090f856-15f0-41b7-bf24-f5685ee7c4ac" />
+<img width="3712" height="720" alt="1000136416" src="https://github.com/user-attachments/assets/a0c84c06-caa4-43c0-9dc4-6d7d50fad1a4" />
 
-<!--
-**Chemicalshot/Chemicalshot** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="720" height="405" alt="1000138493" src="https://github.com/user-attachments/assets/a6ab5733-69b8-412a-8889-28f237f81959" />
+<img width="3712" height="720" alt="1000136416" src="https://github.com/user-attachments/assets/f4cf333f-859f-42f1-b06d-fb659db7020b" />
+<img width="720" height="405" alt="1000138491" src="https://github.com/user-attachments/assets/c54dfa1b-19e5-42fa-8bd6-89f2fa16648e" />
 
-Here are some ideas to get you started:
+$${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#cfa8ff}I'm very slow and quite busy}}$$ </p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> 
+$${\textsf{\color{#000000} }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#ae87de}straw}}$$
+<a href="https://withereds.straw.page/">!</a> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#ae87de}ata}}$$
+<a href="https://witheredes.atabook.org/">!</a> </p>
+
+<p align="center"> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#946cc4}GitHub "read me" made by Toast}}$$
+<a href="https://github.com/Sugar-coatedtoast">Click me!</a> </p>
+
