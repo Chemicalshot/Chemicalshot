@@ -11,6 +11,8 @@ $$\color{#9d7dbd}c+h! HEAVILYencouraged, w2i, mostly.$$
 
 <img width="3712" height="720" alt="1000136416" src="https://github.com/user-attachments/assets/a0c84c06-caa4-43c0-9dc4-6d7d50fad1a4" />
 
+https://accounts.spotify.com/authorize?client_id={CLIENT_ID}&response_type=code&scope=user-read-currently-playing,user-read-recently-played&redirect_uri=http://127.0.0.1:8888/callback
+
 <img width="631" height="376" alt="image" src="https://github.com/user-attachments/assets/e5de165a-eb58-42cf-9002-d4117e1de991" />
 
 <img width="720" height="405" alt="1000138493" src="https://github.com/user-attachments/assets/a6ab5733-69b8-412a-8889-28f237f81959" />
