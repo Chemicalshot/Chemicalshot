@@ -1,7 +1,8 @@
 $$\color{#695783}Do not copy, ask 4 inspo$$ 
 
 $$\color{#9d7dbd}c+h! HEAVILYencouraged, w2i, mostly.$$
-<img width="720" height="405" alt="1000138492" src="https://github.com/user-attachments/assets/f090f856-15f0-41b7-bf24-f5685ee7c4ac" />
+<img width="631" height="376" alt="image" src="https://github.com/user-attachments/assets/9457e5bf-980f-4328-a876-c9e5d3a6024c" />
+
 <img width="3712" height="720" alt="1000136416" src="https://github.com/user-attachments/assets/a0c84c06-caa4-43c0-9dc4-6d7d50fad1a4" />
 
 <img width="720" height="405" alt="1000138493" src="https://github.com/user-attachments/assets/a6ab5733-69b8-412a-8889-28f237f81959" />
@@ -18,7 +19,6 @@ $${\textsf{\color{#000000} }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\
 <p align="center"> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#946cc4}GitHub "read me" made by Toast}}$$
 <a href="https://github.com/Sugar-coatedtoast">Click me!</a> </p>
 
-<img width="694" height="546" alt="image" src="https://github.com/user-attachments/assets/06bf966a-23e8-4b40-9dc3-cca78f814e2f" />
 
 
 
