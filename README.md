@@ -3,8 +3,10 @@ $$\color{#695783}Do not copy, ask 4 inspo$$
 $$\color{#9d7dbd}c+h! HEAVILYencouraged, w2i, mostly.$$
 
 
-<img width="568" height="546" alt="image" src="https://github.com/user-attachments/assets/0598fea6-4a4e-47af-ade9-28c2d250e97a" />
+<img width="484" height="515" alt="image" src="https://github.com/user-attachments/assets/ac4d5fa1-898a-45c3-bd23-f62e38be7fe4" />
 
+
+<img width="631" height="376" alt="image" src="https://github.com/user-attachments/assets/e5de165a-eb58-42cf-9002-d4117e1de991" />
 
 
 
