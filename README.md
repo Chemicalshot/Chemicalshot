@@ -18,7 +18,8 @@ $${\textsf{\color{#000000} }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\
 <p align="center"> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#946cc4}GitHub "read me" made by Toast}}$$
 <a href="https://github.com/Sugar-coatedtoast">Click me!</a> </p>
 
-<img width="609" height="546" alt="image" src="https://github.com/user-attachments/assets/d5fc027d-6233-4c92-a223-7e4284c9263d" />
+<img width="694" height="546" alt="image" src="https://github.com/user-attachments/assets/06bf966a-23e8-4b40-9dc3-cca78f814e2f" />
+
 
 
 ### Titles:
