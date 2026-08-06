@@ -1,7 +1,11 @@
 $$\color{#695783}Do not copy, ask 4 inspo$$ 
 
 $$\color{#9d7dbd}c+h! HEAVILYencouraged, w2i, mostly.$$
-<img width="568" height="546" alt="image" src="https://github.com/user-attachments/assets/eb4fcef5-5737-4946-9340-1096f371e440" />
+
+
+<img width="568" height="546" alt="image" src="https://github.com/user-attachments/assets/0598fea6-4a4e-47af-ade9-28c2d250e97a" />
+
+
 
 
 <img width="3712" height="720" alt="1000136416" src="https://github.com/user-attachments/assets/a0c84c06-caa4-43c0-9dc4-6d7d50fad1a4" />
