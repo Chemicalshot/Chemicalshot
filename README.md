@@ -1,8 +1,7 @@
 $$\color{#695783}Do not copy, ask 4 inspo$$ 
 
 $$\color{#9d7dbd}c+h! HEAVILYencouraged, w2i, mostly.$$
-<img width="631" height="376" alt="image" src="https://github.com/user-attachments/assets/6d46eaa3-626a-4894-a358-3a182ee55c62" />
-
+<img width="484" height="515" alt="image" src="https://github.com/user-attachments/assets/70adfb26-fc84-45c8-90e5-1b4a2def16b4" />
 
 <img width="3712" height="720" alt="1000136416" src="https://github.com/user-attachments/assets/a0c84c06-caa4-43c0-9dc4-6d7d50fad1a4" />
 
