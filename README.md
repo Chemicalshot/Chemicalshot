@@ -1,4 +1,4 @@
-$$\color{#695783}text$$Do not copy, ask 4 inspo! ^o^
+$$\color{#695783}text$$ Do not copy, ask 4 inspo! ^o^
 <img width="720" height="405" alt="1000138492" src="https://github.com/user-attachments/assets/f090f856-15f0-41b7-bf24-f5685ee7c4ac" />
 <img width="3712" height="720" alt="1000136416" src="https://github.com/user-attachments/assets/a0c84c06-caa4-43c0-9dc4-6d7d50fad1a4" />
 
