@@ -1,6 +1,6 @@
 $$\color{#695783}Do not copy, ask 4 inspo$$ 
 
-$$\color{#9d7dbd}c+h! HEAVILYencouraged, w2i, mostly.$$
+$$\color{#9d7dbd}c+h! HEAVILYencouraged, w2i, mostly. FOLLOW ME!!$$
 
 
 <img width="5154" height="4241" alt="Untitled368_20260807093921" src="https://github.com/user-attachments/assets/914203fb-481f-4947-a45d-e9e58d1a8119" />
