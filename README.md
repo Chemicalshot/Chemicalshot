@@ -19,12 +19,12 @@ $${\textsf{\color{#000000} }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\
 
 ### Titles:
 
-[PT Hall of media](https://github.com/pt-hall-of-media) as Circus Baby !
+[PT Hall of media](https://github.com/pt-hall-of-media) as Circus Baby 
 
-[PT Contributers](https://github.com/pt-contributers) as Wemmbu !
+[PT Contributers](https://github.com/pt-contributers) as Wemmbu 
 
-[PT Fashion](https://github.com/pt-fashion) as Adelaide !
+[PT Fashion](https://github.com/pt-fashion) as Adelaide 
 
-[PT Walk Of Fame](https://github.com/pt-walk-of-fame) in the Category "Online 24/7" and as Dol9hin !
+[PT Walk Of Fame](https://github.com/pt-walk-of-fame) in the Category "Online 24/7" and as Dol9hin 
 
 [PT Nominations](https://github.com/pt-nominations) as Flamefrags
