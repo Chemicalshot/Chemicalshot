@@ -1,9 +1,11 @@
 $$\color{#695783}Do not copy, ask 4 inspo$$ 
 
-$$\color{#9d7dbd}c+h! HEAVILYencouraged, w2i, mostly. FOLLOW ME!!$$
+$$\color{#9d7dbd}FOLLOW ME!! c+h $$
 
 
-<img width="5154" height="4241" alt="Untitled368_20260807093921" src="https://github.com/user-attachments/assets/914203fb-481f-4947-a45d-e9e58d1a8119" />
+<img width="5154" height="4241" alt="Untitled368_20260807233819" src="https://github.com/user-attachments/assets/f9db5e4b-d008-4d77-b89a-d17b9a515df2" />
+
+
 
 
 $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#cfa8ff}BMF! I block freely}}$$ </p>
