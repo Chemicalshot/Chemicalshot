@@ -3,7 +3,7 @@ $$\color{#695783}Do not copy, ask 4 inspo$$
 $$\color{#9d7dbd}FOLLOW ME!! c+h $$
 
 
-<img width="5154" height="4241" alt="Untitled368_20260807234346" src="https://github.com/user-attachments/assets/2a242a10-26c4-49e6-9025-ffea315440da" />
+<img width="5154" height="4241" alt="Untitled368_20260808164028" src="https://github.com/user-attachments/assets/1892a3e0-558d-4d23-8958-3b466e2556f0" />
 
 
 
