@@ -25,7 +25,7 @@ ASK FOR SHIPS.
 
 [PT Hall of media](https://github.com/pt-hall-of-media) Pony towns Circus Baby 
 
-[PT Contributers](https://github.com/pt-contributers) Pony towns Wemmbu 
+[PT Contributers](https://github.com/pt-contributers)
 
 [PT Fashion](https://github.com/pt-fashion) Pony towns Adelaide 
 
