@@ -20,5 +20,23 @@ $${\textsf{\color{#000000} }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\
 <a href="https://withereds.straw.page/">!</a> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#ae87de}ata}}$$
 <a href="https://witheredes.atabook.org/">!</a> </p>
 
+titles ty
+
+[Pt hall of media](https://github.com/pt-hall-of-media) As Circus Baby (FNAF)
+
+[Pt fashion](https://github.com/pt-fashion) As Adelaide (Frozen soul/Dream Game)
+
+[Pt walk of fame](https://github.com/pt-walk-of-fame) In Online 24/7 and as Dol9hin (MCYT)
+
+[Pt nominations](https://github.com/pt-nominations) As Flamefrags (MCYT)
+
+[Pt ship town](https://github.com/ship-town) As top ZOMBST Mizisua shippers alongside monoxiides
+
+[Pt cosplayers](https://github.com/ponytowncosplayers) As Wemmbu and Spokeishere (MCYT's)
+
+[FOLKTOWN](https://github.com/FOLKTOWN) As Wemmbu (MCYT)
+
+[Cosplay Town](https://github.com/cosplaytown) As Bon (The Walten Files)
+
 
 
