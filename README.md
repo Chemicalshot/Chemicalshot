@@ -10,7 +10,7 @@ i am full of energy though if i do not respond to your whisper or stuff that mea
 
 Im stupid as shii and I name some or most of my ponies after dumb references you see online
 
-big minecraft, walten files, fnaf and piggy nerd (THESE ARE NOT MY ONLY FANDOMS OFC!)
+big minecraft, walten files, fnaf, examination, starters movie unleashers, dream game/frozen soul, mimic, among us show and piggy nerd (THESE ARE NOT MY ONLY FANDOMS OFC THESE ARE JUST THE ONES I LOVE MAKING THEORIES OF AND THE ONES I TALK ABOUT THE MOST!!)
 
 Melody, Emby, Mustard, Merisz, architectfishh, Twotime, Mint, Tango and Bwon my goats
 
