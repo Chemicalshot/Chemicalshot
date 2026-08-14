@@ -14,7 +14,7 @@ Im stupid as shii and I name some or most of my ponies after dumb references you
 
 big minecraft, walten files, fnaf, examination, starters movie unleashers, dream game/frozen soul, mimic, among us show and piggy nerd (THESE ARE NOT MY ONLY FANDOMS OFC THESE ARE JUST THE ONES I LOVE MAKING THEORIES OF AND THE ONES I TALK ABOUT THE MOST!!)
 
-Melody, Emby, Mustard, Merisz, architectfishh, Twotime, Mint, Tango and Bwon my goats
+Melody, Emby, Mustard, Merisz, architectfishh, Twotime, Mint, Tango, Kai and Bwon my goats
 
 <img width="174" height="272" alt="Screenshot 2026-08-13 175804" src="https://github.com/user-attachments/assets/cedc9616-1d98-4254-96f8-03d17d60e549" />
 i sit almost anywhere, mainly mcyt and bakery area
