@@ -11,14 +11,8 @@ i am full of energy though if i do not respond to your whisper or stuff that mea
 <img width="174" height="272" alt="Screenshot 2026-08-13 175804" src="https://github.com/user-attachments/assets/cedc9616-1d98-4254-96f8-03d17d60e549" />
 i sit almost anywhere, mainly mcyt and bakery area
 
-read straw 4 more
+dni HH, HB, Terrible Mouse, TCOAAL, DSMP fans, basic dni, bb's and -14 pls
 
-
-
-<p align="center"> 
-$${\textsf{\color{#000000} }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#ae87de}straw}}$$
-<a href="https://withereds.straw.page/">!</a> $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#000000}     }}$$ $${\textsf{\color{#ae87de}ata}}$$
-<a href="https://witheredes.atabook.org/">!</a> </p>
 
 titles ty
 
