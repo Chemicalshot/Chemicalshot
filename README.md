@@ -1,6 +1,6 @@
 $$\color{#ab88cc}idiot\ \color{#ab88cc}alert$$
 
-Orbital duo and Scaredy cats fan
+Orbital duo, Tidalmace duo and Scaredy cats duo fan
 
 <img width="350" height="260" alt="Screenshot 2026-08-13 160318" src="https://github.com/user-attachments/assets/7059832b-cf0a-4940-afe5-5a37dc8793fc" />
 
@@ -20,6 +20,13 @@ Melody, Emby, Mustard, Merisz, architectfishh, Twotime, Mint, Tango, Kai and Bwo
 i sit almost anywhere, mainly mcyt and bakery area
 
 dni HH, HB, Terrible Mouse, TCOAAL, DSMP fans, basic dni, bb's and -14 pls
+
+
+<img width="451" height="353" alt="image" src="https://github.com/user-attachments/assets/3b5c5e40-9877-4946-8218-e2b25d7b5cd9" />
+<img width="470" height="362" alt="image" src="https://github.com/user-attachments/assets/a5a6ef91-5361-48ae-8a16-db1c7458ec1a" />
+guys look at Awze aww aw i love EL SMP
+
+
 
 
 titles ty
