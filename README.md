@@ -27,6 +27,8 @@ dni HH, HB, Terrible Mouse, TCOAAL, DSMP fans, basic dni, bb's and -14 pls
 guys look at Awze aww aw i love EL SMP
 
 
+dont cover me unless emby, tango, twotime, mustard, fishh and merisz
+
 
 
 titles ty
