@@ -8,6 +8,8 @@ im just. here
 
 i am full of energy though if i do not respond to your whisper or stuff that means I dunno what to reply to your joke or stuff back with, I am also a bad comforter sorry dont vent 2 me if your too sensitive by a reply with "oh" or "ok" or being left on read, w2i mostly I am offtab most times, at work, sleeping, busy or afk
 
+Melody, Emby, Mustard, Merisz, architectfishh, Twotime, Mint, Tango and Bwon my goats
+
 <img width="174" height="272" alt="Screenshot 2026-08-13 175804" src="https://github.com/user-attachments/assets/cedc9616-1d98-4254-96f8-03d17d60e549" />
 i sit almost anywhere, mainly mcyt and bakery area
 
