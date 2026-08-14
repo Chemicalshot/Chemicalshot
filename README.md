@@ -1,5 +1,7 @@
 $$\color{#ab88cc}idiot\ \color{#ab88cc}alert$$
 
+Orbital duo and Scaredy cats fan
+
 <img width="350" height="260" alt="Screenshot 2026-08-13 160318" src="https://github.com/user-attachments/assets/7059832b-cf0a-4940-afe5-5a37dc8793fc" />
 
 im just. here
