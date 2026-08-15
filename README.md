@@ -45,8 +45,6 @@ titles ty
 
 [Ponychievements](https://github.com/ponychievements) In pretty ponies
 
-[FOLKTOWN](https://github.com/FOLKTOWN) As Wemmbu (MCYT)
-
 [Cosplay Town](https://github.com/cosplaytown) As Bon (The Walten Files) and Wemmbu (MCYT)
 
 
