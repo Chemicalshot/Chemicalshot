@@ -24,26 +24,10 @@ dni HH, HB, Terrible Mouse, TCOAAL, DSMP fans, basic dni, bb's and -14 pls
 
 <img width="451" height="353" alt="image" src="https://github.com/user-attachments/assets/3b5c5e40-9877-4946-8218-e2b25d7b5cd9" />
 <img width="470" height="362" alt="image" src="https://github.com/user-attachments/assets/a5a6ef91-5361-48ae-8a16-db1c7458ec1a" />
-guys look at Awze aww aw i love EL SMP
+
 
 
 dont cover me unless emby, tango, twotime, mustard, fishh and merisz
-
-
-
-titles ty
-
-[Pt hall of media](https://github.com/pt-hall-of-media) As Circus Baby (FNAF)
-
-[Pt fashion](https://github.com/pt-fashion) As Adelaide (Frozen soul/Dream Game)
-
-[Pt walk of fame](https://github.com/pt-walk-of-fame) In Online 24/7 and as Dol9hin (MCYT)
-
-[Pt nominations](https://github.com/pt-nominations) As Flamefrags (MCYT)
-
-[Pt ship town](https://github.com/ship-town) As top ZOMBST Mizisua shippers alongside monoxiides
-
-[Ponychievements](https://github.com/ponychievements) In pretty ponies
 
 [Cosplay Town](https://github.com/cosplaytown) As Bon (The Walten Files) and Wemmbu (MCYT)
 
