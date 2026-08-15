@@ -27,9 +27,6 @@ dni HH, HB, Terrible Mouse, TCOAAL, DSMP fans, basic dni, bb's and -14 pls
 
 
 
-dont cover me unless emby, tango, twotime, mustard, fishh and merisz
-
-[Cosplay Town](https://github.com/cosplaytown) As Bon (The Walten Files) and Wemmbu (MCYT)
 
 
 
