@@ -43,7 +43,7 @@ titles ty
 
 [Pt ship town](https://github.com/ship-town) As top ZOMBST Mizisua shippers alongside monoxiides
 
-[Pt cosplayers](https://github.com/ponytowncosplayers) As Wemmbu and Spokeishere (MCYT's)
+
 
 [FOLKTOWN](https://github.com/FOLKTOWN) As Wemmbu (MCYT)
 
