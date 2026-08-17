@@ -15,14 +15,15 @@ If I suddenly stop cud with you dont take it offensively, I prob went off to cud
 I have depression, ADHD, Autism and OCD, Chinese + Portuguese! ^_^ 
 Starters Movie Unleashers, Mcyt, Piggy, Among Us Show, Dream Game, Mimic fans, FNAF fans and TWF fans pls int! (I have more fandoms Im in)
 
-big minecraft, walten files, fnaf, examination, starters movie unleashers, dream game/frozen soul, mimic, among us show and piggy nerd (THESE ARE NOT MY ONLY FANDOMS OFC THESE ARE JUST THE ONES I LOVE MAKING THEORIES OF AND THE ONES I TALK ABOUT THE MOST!!)
+always cud even if not in name I dont think i ever had a "dniuf" "dniuc" or "dni" in my name I love cuddles
 
 Melody, Emby, Mustard, Merisz, architectfishh, Twotime, Mint, Tango, Kai and Bwon my goats
 
 <img width="174" height="272" alt="Screenshot 2026-08-13 175804" src="https://github.com/user-attachments/assets/cedc9616-1d98-4254-96f8-03d17d60e549" />
 i sit almost anywhere, mainly mcyt and bakery area
 
-dni HH, HB, Terrible Mouse, TCOAAL, DSMP fans, basic dni, bb's and -14 pls
+HH, HB, Terrible Mouse, TCOAAL, DSMP fans, basic dni, bb's and -14 pls DNI.
+Or if u still int I will block you! ^_^
 
 
 <img width="451" height="353" alt="image" src="https://github.com/user-attachments/assets/3b5c5e40-9877-4946-8218-e2b25d7b5cd9" />
