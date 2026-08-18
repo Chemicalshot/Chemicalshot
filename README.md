@@ -18,7 +18,7 @@ Starters Movie Unleashers, Mcyt, Piggy, Among Us Show, Dream Game, Mimic fans, F
 
 always cud even if not in name I dont think i ever had a "dniuf" "dniuc" or "dni" in my name I love cuddles
 
-Melody, Emby, Mustard, Merisz, architectfishh, Twotime, Mint, Tango, Crushdow, Kai and Bwon my goats
+Melody, Emby, Mustard, Merisz, architectfishh, Twotime, Mint, Tango, Kai and Bwon my goats
 
 <img width="174" height="272" alt="Screenshot 2026-08-13 175804" src="https://github.com/user-attachments/assets/cedc9616-1d98-4254-96f8-03d17d60e549" />
 i sit almost anywhere, mainly mcyt and bakery area
