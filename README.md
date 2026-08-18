@@ -26,6 +26,7 @@ i sit almost anywhere, mainly mcyt and bakery area
 HH, HB, Terrible Mouse, TCOAAL, DSMP fans, basic dni, bb's and -14 pls DNI.
 Or if u still int I will block you! ^_^
 
+also -17 iwc. I am a adult
 
 <img width="451" height="353" alt="image" src="https://github.com/user-attachments/assets/3b5c5e40-9877-4946-8218-e2b25d7b5cd9" />
 <img width="470" height="362" alt="image" src="https://github.com/user-attachments/assets/a5a6ef91-5361-48ae-8a16-db1c7458ec1a" />
