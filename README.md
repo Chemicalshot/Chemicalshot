@@ -12,7 +12,7 @@ i am full of energy, though if i do not respond to your whisper or stuff that me
 
 If I suddenly stop cud with you dont take it offensively, I prob went off to cud with closer friends, or if your someone I just met I went off to cud with another friend, I rarely accept friend req's, if we talked enough I'll consider about being friends with you, also I do NOT like being covered unless it's friends, if you are directly covering me and know you are doing that PLEASE DONT DO THAT AGAIN. if you are not aware and I understand you don't know and are not aware I will whisp you to move! ty
 
-I have depression, ADHD, Autism and OCD.
+Fully diagnosed depression, ADHD, Autism and OCD.
 
 Starters Movie Unleashers, Mcyt, Piggy, Among Us Show, Dream Game, Mimic fans, FNAF fans and TWF fans pls int! (I have more fandoms Im in)
 
