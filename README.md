@@ -14,8 +14,6 @@ If I suddenly stop cud with you dont take it offensively, I prob went off to cud
 
 Fully diagnosed depression, ADHD, Autism and OCD.
 
-Starters Movie Unleashers, Mcyt, Piggy, Among Us Show, Dream Game, Mimic fans, FNAF fans and TWF fans pls int! (I have more fandoms Im in)
-
 always cud even if not in name I dont think i ever had a "dniuf" "dniuc" or "dni" in my name I love cuddles
 
 happily taken
