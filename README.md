@@ -18,8 +18,6 @@ Starters Movie Unleashers, Mcyt, Piggy, Among Us Show, Dream Game, Mimic fans, F
 
 always cud even if not in name I dont think i ever had a "dniuf" "dniuc" or "dni" in my name I love cuddles
 
-Melody, Emby, Merisz, architectfishh, Twotime, Mint, Tango, Kai, Bwon my goats
-
 happily taken
 
 dnc, ask 4 inspo because u will mostly get a yes unless its a pony im gifting or one i got gifted
