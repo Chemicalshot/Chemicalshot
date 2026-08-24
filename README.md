@@ -12,8 +12,6 @@ I can be dry or energetic its a 50/50 chance, if im dry mainly because im with m
 
 If I suddenly stop cud with you dont take it offensively, I prob went off to cud with closer friends, or if your someone I just met I went off to cud with another friend, I rarely accept friend req's, if we talked enough I'll consider about being friends with you, also I do NOT like being covered unless it's friends, if you are directly covering me and know you are doing that PLEASE DONT DO THAT AGAIN. if you are not aware and I understand you don't know and are not aware I will whisp you to move! ty
 
-I dont crown ppl by whispering them a crown emoji, if i go up to you and nuzzle u that means i love ya pony! its my way of crowning :]
-
 Fully diagnosed depression, ADHD, Autism and OCD.
 
 always cud even if not in name I dont think i ever had a "dniuf" "dniuc" or "dni" in my name I love cuddles
