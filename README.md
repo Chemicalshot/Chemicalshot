@@ -27,7 +27,7 @@ sp/so863
 <img width="174" height="272" alt="Screenshot 2026-08-13 175804" src="https://github.com/user-attachments/assets/cedc9616-1d98-4254-96f8-03d17d60e549" />
 i sit almost anywhere, mainly mcyt and bakery area
 
-HH, HB, Terrible Mouse, TCOAAL, DSMP fans, basic dni, bb's and -14 pls DNI.
+HH, HB, Terrible Mouse, TCOAAL, DSMP fans, TFC fans basic dni crit, bb's and -14 pls DNI.
 Or if u still int I will block you! ^_^
 
 also -17 iwc. I am a adult
