@@ -20,7 +20,7 @@ happily taken
 
 dnc, ask 4 inspo because u will mostly get a yes unless its a pony im gifting or one i got gifted
 
-sp/so863
+sp837
 
 <img width="174" height="272" alt="Screenshot 2026-08-13 175804" src="https://github.com/user-attachments/assets/cedc9616-1d98-4254-96f8-03d17d60e549" />
 i sit almost anywhere, mainly mcyt and bakery area
