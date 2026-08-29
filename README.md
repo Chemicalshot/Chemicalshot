@@ -16,7 +16,7 @@ Fully diagnosed depression, ADHD, Autism and OCD.
 
 always cud even if not in name I dont think i ever had a "dniuf" "dniuc" or "dni" in my name I love cuddles
 
-happily taken
+taken by my adorable cute sweet bf, Blue <333
 
 dnc, ask 4 inspo because u will mostly get a yes unless its a pony im gifting or one i got gifted
 
