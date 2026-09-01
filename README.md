@@ -1,4 +1,4 @@
-$$\color{#ab88cc}idiot\ \color{#ab88cc}alert$$
+$$\color{#ab88cc}Through\ \color{#ab88cc}Patches\ \color{#ab88cc}Of\ \color{#ab88cc}Violet$$
 
 Orbital duo, Tidalmace duo and Scaredy cats duo fan
 
