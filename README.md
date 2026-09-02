@@ -6,7 +6,8 @@ Orbital duo, Tidalmace duo and Scaredy cats duo fan
 
 pls read my whole readme to understand who I am
 
-<img width="382" height="280" alt="Screenshot 2026-08-13 175425" src="https://github.com/user-attachments/assets/c4aba7f4-2c31-4690-8fdd-5447829ed0f9" />
+<img width="464" height="128" alt="image" src="https://github.com/user-attachments/assets/515edee9-ac53-458c-83c7-47d3bd01cd8a" />
+my stupid quartet and me
 
 I can be dry or energetic its a 50/50 chance, if im dry mainly because im with my bf or im tired, though if i do not respond to your whisper or stuff that means I dunno what to reply to your joke or stuff back with, I am also a bad comforter sorry dont vent 2 me if your too sensitive by a reply with "oh" or "ok" or being left on read, if you are in a bad mood tho and you want me around the best I can do is cud with you, w2i mostly I am offtab most times, at work, sleeping, busy or afk
 
