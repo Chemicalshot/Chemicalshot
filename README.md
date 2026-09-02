@@ -53,7 +53,8 @@ ${\textsf{\color{#565d5e}　ask　2　inspo}}$
   <p>Dream smp</p>
   <p>The freak circus</p>
   <p>If you fit in the Basic dni criteria https://dni-criteria.carrd.co/  </p>
-   <p>Boundary breakers, forsaken fans + Dandys world fans on thin ice </p>
+   <p>Boundary breakers</p>
+     <p>Dandys world and Forsaken fans on thin ice.<p>
 </div>
 </details>
 <br>
