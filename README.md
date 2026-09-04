@@ -66,4 +66,4 @@ ${\textsf{\color{#565d5e}　ask　2　inspo}}$
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/38f41a1f-dc77-4441-a2c8-4728ce5d004b" />
 
 
-titles wow : pt's Circus Baby , pt's wemmbu (on 2 award acc's), pt's dol9hin, pt's ZOMBST mizisua shipper, pt's Flamefrags, pt's Bon (the walten files), prettiest ponies of pt, pt's underrated, pt's adelaide (FS/DG)
+titles wow : pt's Circus Baby , pt's wemmbu (on 2 award acc's), pt's dol9hin, pt's ZOMBST mizisua shipper, pt's Flamefrags, pt's Bon (the walten files), prettiest ponies of pt, pt's underrated, pt's adelaide (FS/DG), pt's doublenurse shipper
