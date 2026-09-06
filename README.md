@@ -68,4 +68,4 @@ ${\textsf{\color{#565d5e}　ask　2　inspo}}$
 
 thank you title accounts 
 
-titles wow : pt's Circus Baby , pt's wemmbu (on 2 award acc's), pt's dol9hin, pt's ZOMBST mizisua shipper, pt's Flamefrags, pt's Bon (the walten files), prettiest ponies of pt, pt's underrated, pt's adelaide (FS/DG), pt's doublenurse shipper
+titles wow : pt's Circus Baby , pt's wemmbu (on 2 award acc's), pt's dol9hin, pt's ZOMBST mizisua shipper, pt's Flamefrags, pt's Bon (the walten files), prettiest ponies of pt, pt's underrated, pt's adelaide (FS/DG), pt's doublenurse shipper, pt's wemmbu fict
