@@ -60,3 +60,6 @@ Dandys world and Forsaken fans on thin ice.
   <img width="100" height="56" alt="tumblr_cb85b288e61ded7f418f3ee3618e3c11_cc73018b_100" src="https://github.com/user-attachments/assets/95694682-c338-4a06-b95f-ca70b2497173" />
 <img width="100" height="56" alt="tumblr_97d11a85f6f555ac8d8204963d4c1a05_9d652a0a_100" src="https://github.com/user-attachments/assets/91557ffc-6478-4ca1-a31e-89355be04f61" />
 <img width="100" height="56" alt="tumblr_25f130c032a5d2d0ac6008d402337f4b_f7d585ae_100" src="https://github.com/user-attachments/assets/4fb891b7-17da-4526-a63b-6b8759fe0ecb" />
+
+
+titles yyay : Pt's Wemmbu kin, Pt's Wemmbu (on 2 title accounts), Pt's Bon (TWF), Pt's Circus Baby, Pt's Dol9hin, Pt's Adelaide (FS/DG), Pt's Flamefrags, Pt's Doublenurse and ZOMBST Mizisua shipper, Prettiest pt ponies, Pt's most online aka online 24/7, pt's Facty Boy, sign my ata if there's any titles I have that I missed :D
