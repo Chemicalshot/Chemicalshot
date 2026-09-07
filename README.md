@@ -1,6 +1,4 @@
-![Friends!](https://img.shields.io/badge/File!Facty-FF9966?style=flat&labelColour=F5E6C8)
-
-![Profile Views](https://komarev.com/ghpvc/?username=YOUR_USERNAME&label=Factattackers!&color=orange)
+![Friends!](https://img.shields.io/badge/Factattackers!-FF9966?style=flat&labelColour=F5E6C8)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=30&duration=1800&pause=1000&color=C07458&width=435&lines=I'm+feeling..;facty!)](https://git.io/typing-svg)
 
