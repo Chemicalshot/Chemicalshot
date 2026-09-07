@@ -38,8 +38,8 @@ if you are not aware and I understand you don't know and are not aware I will wh
 though if i do not respond to your whisper or stuff that means I dunno what to reply to your joke or stuff back with,
  I am also a bad comforter sorry dont vent 2 me if your too sensitive by a reply with "oh" or "ok" or being left on read,
   if you are in a bad mood tho and you want me around the best I can do is cud with you
-   I rarely accept friend req's, if we talked enough I'll consider about being friends with you
-   sp873
+   I rarely accept friend req's, if we talked enough I'll consider about being friends with you!
+  I am a sp873
   
   </details>
 
