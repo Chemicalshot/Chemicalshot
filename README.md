@@ -57,6 +57,8 @@ Basic dni
 Boundary breakers
 Lookout supporters
 Sharplow shippers
+Pixeldrink fans
+Qwel and Rox defenders and fans
 
   </details>
 
