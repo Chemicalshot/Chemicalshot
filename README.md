@@ -68,3 +68,5 @@ pt title accounts pls sign my ata with your account name to tell me I cant go th
 
 
 titles yyay : Pt's Wemmbu (on 4 title accounts), Pt's Bon (TWF), Pt's Circus Baby, Pt's Dol9hin, Pt's Adelaide (FS/DG), Pt's Flamefrags, Pt's Doublenurse and ZOMBST Mizisua shipper, Prettiest pt ponies, Pt's most online aka online 24/7, pt's Facty and Head Nurse sign my ata if there's any titles I have that I missed :D
+
+purple guy duo ceo BTW
