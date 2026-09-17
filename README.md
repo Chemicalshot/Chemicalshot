@@ -1,6 +1,6 @@
 ![Friends!](https://img.shields.io/badge/Factattackers!-FF9966?style=flat&labelColour=F5E6C8)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=30&duration=1800&pause=1000&color=C07458&width=435&lines=I'm+feeling..;facty!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=25&duration=2500&pause=1000&color=F7B773&width=435&lines=I'm+burning+the+memories;I'm+burning+the+letters;I'm+burning+what+we+created.)](https://git.io/typing-svg)
 
 
 <img width="500" alt="Untitled131_20260905220936" src="https://github.com/user-attachments/assets/243b09df-9905-46be-b167-349416e5c190" align="left" />
