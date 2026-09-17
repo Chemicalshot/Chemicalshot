@@ -22,7 +22,7 @@ ${\textsf{\color{#B3B7BB}　　　my feelings⠀⠀ㅤㅤ❤︎ㅤㅤㅤ 誠👜
   <p align="center">
     
 
-  w2i mostly I am offtab most times, at work, sleeping, busy or afk
+  I bite. w2i mostly I am offtab most times, at work, sleeping, busy or afk
    always cud even if not in name I dont think i ever had a "dniuf" "dniuc" or "dni" in my name I love cuddles
 dnc, ask 4 inspo because u will mostly get a yes unless its a pony im gifting or one i got gifted
 If I suddenly stop cud with you dont take it offensively, I prob went off to cud with closer friends, or if your someone I just met I went off to cud with another friend
