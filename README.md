@@ -39,7 +39,7 @@ though if i do not respond to your whisper or stuff that means I dunno what to r
  I am also a bad comforter sorry dont vent 2 me if your too sensitive by a reply with "oh" or "ok" or being left on read,
   if you are in a bad mood tho and you want me around the best I can do is cud with you
    I am very talkative, if we talked enough I'll consider about being friends with you!
-  I am a sp873
+  Sp873, ENTJ
   
   </details>
 
