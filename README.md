@@ -69,6 +69,6 @@ Qwel and Rox defenders and fans
 pt title accounts pls sign my ata with your account name to tell me I cant go through accounts all the time, thx
 
 
-titles yyay : Pt's Wemmbu (on 5 title accounts), Pt's Bon (TWF), Pt's Circus Baby, Pt's Dol9hin, Pt's Adelaide (FS/DG), Pt's Flamefrags, Pt's Doublenurse and ZOMBST Mizisua shipper, Prettiest pt ponies, Pt's most online aka online 24/7, pt's Facty, Head Nurse, Spokeishere's biggest fan + the song ATTACKING VERTICAL by femtanyl and ゴキブリの味 by MARETU, sign my ata if there's any titles I have that I missed :D
+titles yyay : Pt's Wemmbu (on 5 title accounts), Pt's Bon (TWF), Pt's Circus Baby, Pt's Dol9hin, Pt's Adelaide (FS/DG), Pt's Flamefrags, Pt's Doublenurse and ZOMBST Mizisua shipper, Prettiest pt ponies, Pt's most online aka online 24/7, pt's Facty, Head Nurse, Spokeishere's biggest fan + the song ATTACKING VERTICAL by femtanyl and ゴキブリの味 by MARETU and pt's Squidswag (as Ashwagg alongside liquidsmooth as Squiddo) sign my ata if there's any titles I have that I missed :D
 
 Glitchexplosion duo ceo BTW
