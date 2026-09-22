@@ -1,6 +1,4 @@
-![Friends!](https://img.shields.io/badge/Dolphins-78AACC?style=flat&labelColour=78AACC)
-
-![Fact attackers](https://komarev.com/ghpvc/?username=Chemicalshot)
+![Friends!](https://img.shields.io/badge/Ocean-78AACC?style=flat&labelColour=78AACC)
 
 [![Hits](https://hits.sh/github.com/wemmbus.svg?style=flat-square&label=dolphins&color=5beeee&labelColor=6372e1)](https://hits.sh/github.com/Chemicalshot/)
 
