@@ -49,7 +49,7 @@ though if i do not respond to your whisper or stuff that means I dunno what to r
    <details>
     <summary> ${\textsf{\color{#AF5054} dnis }}$ </summary>
     
-Under 14 years old, 17- iwc. I am an adult
+Under 14 years old, 17- iwc. I am an adult,
 Hazbin hotel and helluva boss
 Terrible Mouse
 The Coffin of Andy and Leyley
