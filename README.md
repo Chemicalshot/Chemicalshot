@@ -1,5 +1,7 @@
 ![Friends!](https://img.shields.io/badge/Factattackers!-FF9966?style=flat&labelColour=F5E6C8)
 
+![Fact attackers](https://komarev.com/ghpvc/?username=Chemicalshot)
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=25&duration=2500&pause=1000&color=F7B773&width=435&lines=You+built+me+palaces;Out+of+paragraphs)](https://git.io/typing-svg)
 
 
