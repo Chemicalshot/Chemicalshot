@@ -2,7 +2,7 @@
 
 ![Fact attackers](https://komarev.com/ghpvc/?username=Chemicalshot)
 
-~ [atabook](https://witheredes.atabook.org/) 🐬
+~ [atabook](https://witheredes.atabook.org/) 🐬 [Art dump sp](https://awzeartdumped.straw.page/)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Garamond&size=30&duration=2100&pause=120&color=78E0F7&width=435&lines=You+give+me+diamonds;I+give+you+nothing!;You+can't+own+me;I'm+like+a+dolphin!)](https://git.io/typing-svg)
 
