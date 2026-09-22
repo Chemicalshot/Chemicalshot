@@ -1,55 +1,19 @@
-![Friends!](https://img.shields.io/badge/Factattackers!-FF9966?style=flat&labelColour=F5E6C8)
+![Friends!](https://img.shields.io/badge/Dolphins-78AACC?style=flat&labelColour=78AACC)
 
 ![Fact attackers](https://komarev.com/ghpvc/?username=Chemicalshot)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=25&duration=2500&pause=1000&color=F7B773&width=435&lines=You+built+me+palaces;Out+of+paragraphs)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Garamond&size=30&duration=2100&pause=120&color=78E0F7&width=435&lines=You+give+me+diamonds;I+give+you+nothing!;You+can't+own+me;I'm+like+a+dolphin!)](https://git.io/typing-svg)
 
+<img width="1500" height="500" alt="tumblr_d87de8e0ffae96f3db2a94e72b9138d3_7db71d5b_2048" src="https://github.com/user-attachments/assets/745e3ba3-70e5-447f-bc3d-e51a5a7880d5" />
 
-<img width="500" alt="Untitled131_20260905220936" src="https://github.com/user-attachments/assets/243b09df-9905-46be-b167-349416e5c190" align="left" />
+<img width="300" alt="tumblr_9b4bc5258655e5fd51b83928c57a3ae0_52ad7f36_1280" src="https://github.com/user-attachments/assets/c59bf906-d6aa-4ee1-bd01-9d28bbeb6f86" />
+<img width="300"  alt="tumblr_a6ecf505b88ce94e4520e1ad0a43110b_5b3ec636_1280" src="https://github.com/user-attachments/assets/e9290dc0-edb0-446e-9dd2-ca3c5238756a" />
+<img width="300"  alt="tumblr_458c42e741bd794c4aa743479a5f86b6_34e4b567_1280" src="https://github.com/user-attachments/assets/b6c81827-2432-4b5b-9159-2dbe1adce108" />
 
-<img width="101" height="57" alt="tumblr_b32ce86b45c65d41026ad8b40bd087ae_a47ffee3_250" src="https://github.com/user-attachments/assets/225fd74d-f61b-4ba8-9880-b3524782996f" />
-<img width="101" height="57" alt="tumblr_d5bb000fe18a97b88c994c75aa92ccdf_677c06e1_250" src="https://github.com/user-attachments/assets/3647a71a-3ff7-413f-8eba-6f9414b2613c" />
-<img width="100" height="56" alt="tumblr_792567aa07335115e05cac9a04536a52_b2d96e10_100" src="https://github.com/user-attachments/assets/f379ba4b-a178-43cf-a950-6bae8d508b63" />
-
-${\textsf{\color{#EFE5C1}　　　♪　　🐈　 ꯭✿　　　dear,}}$
-
-${\textsf{\color{#B3B7BB}　　　my feelings⠀⠀ㅤㅤ❤︎ㅤㅤㅤ 誠👜}}$
-
-<img width="20" alt="blue5" src="https://github.com/user-attachments/assets/a4af5838-4644-445d-a3e0-85855077e1ef" /> ${\textsf{\color{#EFE5C1} Do　not　copy　(꒪ཫ꒪; ) }}$
-
-<img width="20"  alt="blue" src="https://github.com/user-attachments/assets/95b92b6c-2614-4314-b73f-3a80a932e5a1" /> ${\textsf{\color{#B3B7BB} Ask　2　inspo　𓌹(＾་།＾)𓌺  }}$
-
- <details>
-  <summary> ${\textsf{\color{#F3EBC9} pt}}$ </summary><br>
-  <p align="center">
-    
-
-  I bite. w2i mostly I am offtab most times, at work, sleeping, busy or afk
-   always cud even if not in name I dont think i ever had a "dniuf" "dniuc" or "dni" in my name I love cuddles
-dnc, ask 4 inspo because u will mostly get a yes unless its a pony im gifting or one i got gifted
-If I suddenly stop cud with you dont take it offensively, I prob went off to cud with closer friends, or if your someone I just met I went off to cud with another friend
-also I do NOT like being covered unless it's friends, if you are directly covering me and know you are doing that PLEASE DONT DO THAT AGAIN.
-if you are not aware and I understand you don't know and are not aware I will whisp you to move! also do not flirt, I have a boyfriend.
-  </details>
-
-
-  <details>
-    <summary> ${\textsf{\color{#F3EBC9} byf }}$ </summary>
-    
- I can be dry or energetic its a 50/50 chance, if im dry mainly because im with my bf or im tired,
-though if i do not respond to your whisper or stuff that means I dunno what to reply to your joke or stuff back with,
- I am also a bad comforter sorry dont vent 2 me if your too sensitive by a reply with "oh" or "ok" or being left on read,
-  if you are in a bad mood tho and you want me around the best I can do is cud with you
-   I am very talkative, if we talked enough I'll consider about being friends with you!
-  Sp873, ENTJ
-  
-  </details>
-
-
-   <details>
-    <summary> ${\textsf{\color{#AF5054} dnis }}$ </summary>
-    
-Under 14 years old, 17- iwc. I am an adult,
+<img width="1500" alt="tumblr_017b3e7837377314eadde93ee1b74833_f67e13ff_1280" src="https://github.com/user-attachments/assets/9626a51c-3517-49e6-8dc0-0de82569a5a7" />
+<details>
+ <summary> ${\textsf{\color{#c4c9d4} dnis }}$ </summary>
+    Under 14 years old, 17- iwc. I am an adult,
 Hazbin hotel and helluva boss
 Terrible Mouse
 The Coffin of Andy and Leyley
@@ -60,12 +24,32 @@ Boundary breakers
 Lookout supporters
 Pixeldrink fans
 Qwel and Rox defenders and fans
-
+  
   </details>
+<img width="1500"  alt="tumblr_46c3f01cbe506c4e99c4eba51c9e7dc9_b772843b_2048" src="https://github.com/user-attachments/assets/f269a3ce-7b46-4f03-9081-be55eeb42f51" />
+ <details>
+  <summary> ${\textsf{\color{#ce2a78} byf n pt}}$ </summary><br>
+  <p align="center">
+    
 
-  <img width="100" height="56" alt="tumblr_cb85b288e61ded7f418f3ee3618e3c11_cc73018b_100" src="https://github.com/user-attachments/assets/95694682-c338-4a06-b95f-ca70b2497173" />
-<img width="100" height="56" alt="tumblr_97d11a85f6f555ac8d8204963d4c1a05_9d652a0a_100" src="https://github.com/user-attachments/assets/91557ffc-6478-4ca1-a31e-89355be04f61" />
-<img width="100" height="56" alt="tumblr_25f130c032a5d2d0ac6008d402337f4b_f7d585ae_100" src="https://github.com/user-attachments/assets/4fb891b7-17da-4526-a63b-6b8759fe0ecb" />
+  I bite. w2i mostly I am offtab most times, at work, sleeping, busy or afk
+   always cud even if not in name I dont think i ever had a "dniuf" "dniuc" or "dni" in my name I love cuddles
+dnc, ask 4 inspo because u will mostly get a yes unless its a pony im gifting or one i got gifted
+If I suddenly stop cud with you dont take it offensively, I prob went off to cud with closer friends, or if your someone I just met I went off to cud with another friend
+also I do NOT like being covered unless it's friends, if you are directly covering me and know you are doing that PLEASE DONT DO THAT AGAIN.
+if you are not aware and I understand you don't know and are not aware I will whisp you to move! also do not flirt, I have a boyfriend. 
+
+ I can be dry or energetic its a 50/50 chance, if im dry mainly because im with my bf or im tired,
+though if i do not respond to your whisper or stuff that means I dunno what to reply to your joke or stuff back with,
+ I am also a bad comforter sorry dont vent 2 me if your too sensitive by a reply with "oh" or "ok" or being left on read,
+  if you are in a bad mood tho and you want me around the best I can do is cud with you
+   I am very talkative, if we talked enough I'll consider about being friends with you!
+  Sp873, ENTJ
+  
+  </details>
+  
+<img width="1500" alt="tumblr_77f1b4ca4f531c59d0e1a919ced39ee8_a7f314b2_1280" src="https://github.com/user-attachments/assets/e089f112-9948-4d83-8244-a8ab29fd34b8" />
+<img width="1500" alt="tumblr_00424fe4ddd0330b020d92496425153e_2a7c3bf8_2048" src="https://github.com/user-attachments/assets/c9af6656-6173-40e1-9a95-1e00ace77a56" />
 
 
 pt title accounts pls sign my ata with your account name to tell me I cant go through accounts all the time, thx
