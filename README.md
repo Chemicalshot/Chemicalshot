@@ -26,8 +26,8 @@ ${\textsf{\color{#B3B7BB}　　　my feelings⠀⠀ㅤㅤ❤︎ㅤㅤㅤ 誠👜
    always cud even if not in name I dont think i ever had a "dniuf" "dniuc" or "dni" in my name I love cuddles
 dnc, ask 4 inspo because u will mostly get a yes unless its a pony im gifting or one i got gifted
 If I suddenly stop cud with you dont take it offensively, I prob went off to cud with closer friends, or if your someone I just met I went off to cud with another friend
-also I do NOT like being covered unless it's friends, if you are directly covering me and know you are doing that PLEASE DONT DO THAT AGAIN. also do not flirt, I have a boyfriend.
-if you are not aware and I understand you don't know and are not aware I will whisp you to move! ty
+also I do NOT like being covered unless it's friends, if you are directly covering me and know you are doing that PLEASE DONT DO THAT AGAIN.
+if you are not aware and I understand you don't know and are not aware I will whisp you to move! also do not flirt, I have a boyfriend.
   </details>
 
 
