@@ -44,7 +44,7 @@ if you are not aware and I understand you don't know and are not aware I will wh
 though if i do not respond to your whisper or stuff that means I dunno what to reply to your joke or stuff back with,
  I am also a bad comforter sorry dont vent 2 me if your too sensitive by a reply with "oh" or "ok" or being left on read,
   if you are in a bad mood tho and you want me around the best I can do is cud with you
-   I am very talkative, if we talked enough I'll consider about being friends with you!
+   I am very talkative, I love making friends, also while being friends, do not be emotional and play mind games on me if you're feeling bad, I will confront you and if you say you're okay, I will consider you are okay no matter how you are acting up, because you gave me that answer and I will believe it is true.
   Sp873, ENTJ
   
   </details>
