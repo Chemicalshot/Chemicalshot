@@ -1,10 +1,11 @@
-![Friends!](https://img.shields.io/badge/Ocean-78AACC?style=flat&labelColour=78AACC)
+![Friends!](https://img.shields.io/badge/Null-582F9A?style=flat&labelColour=78AACC)
 
-[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=flat-square&label=dolphins&color=5beeee&labelColor=6372e1)](https://hits.sh/github.com/Chemicalshot/)
+[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=for-the-badge&label=Null%20Soldiers&extraCount=1452&color=341574&labelColor=040303)](https://hits.sh/github.com/Chemicalshot/)
 
  < ♡ [atabook](https://witheredes.atabook.org/) 🌈 [Art dump](https://awzeartdumped.straw.page/) ⚡ [strawpage](https://spokelings.straw.page/) ⬛ [Frozi](https://frozi.lol/wemmbu) 🐟 [guns](https://guns.lol/spokeisheres) 3
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Courier&size=25&duration=2200&pause=100&color=F74590&width=435&lines=Keep+me+on+fire%2C;Keep+me+on+fire!;I'll+be+alright!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Courier&size=25&duration=2200&pause=100&color=561692&width=435&lines=Keep+me+on+fire%2C;Keep+me+on+fire!;I'll+be+alright!)](https://git.io/typing-svg)
+
 <img width="1500" height="256" alt="tumblr_8150c1866b164f5eee846720bfdcb15b_d5f2576f_2048" src="https://github.com/user-attachments/assets/80c6e8f6-0af9-427e-a7b1-32b782ff82ef" />
 
 <img width="1280" height="720" alt="tumblr_45a03115758305f55ff7050d8edb2013_16348e9a_1280" src="https://github.com/user-attachments/assets/db6f424e-fca3-47b5-a144-7cc61bfdd967" />
