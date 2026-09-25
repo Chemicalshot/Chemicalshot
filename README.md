@@ -2,7 +2,7 @@
 
 [![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=flat-square&label=dolphins&color=5beeee&labelColor=6372e1)](https://hits.sh/github.com/Chemicalshot/)
 
- < ♡ [atabook](https://witheredes.atabook.org/) 🐬 [Art dump sp](https://awzeartdumped.straw.page/) 🫧 [Frozi](https://frozi.lol/wemmbu) 🦪 [guns](https://guns.lol/spokeisheres) 3
+ < ♡ [atabook](https://witheredes.atabook.org/) 🐬 [Art dump](https://awzeartdumped.straw.page/) 🐟 [strawpage](https://spokelings.straw.page/) 🫧 [Frozi](https://frozi.lol/wemmbu) 🦪 [guns](https://guns.lol/spokeisheres) 3
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Garamond&size=30&duration=2100&pause=120&color=78E0F7&width=435&lines=You+give+me+diamonds;I+give+you+nothing!;You+can't+own+me;I'm+like+a+dolphin!)](https://git.io/typing-svg)
 
