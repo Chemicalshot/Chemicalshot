@@ -9,6 +9,25 @@
 <img width="900" height="228" alt="tumblr_c1c8c11a5658ee4c2559b290feb5029d_e84ca761_1280" src="https://github.com/user-attachments/assets/883a37f1-1677-46e4-a38f-d0acf7f64b74" />
 
 <details>
+ <summary> ${\textsf{\color{#c4c9d4} info }}$ </summary>
+Usually offtab, at work, sleeping, afk or busy with something else, whisper to get my attention.
+
+Read my dni list please, I also block freely.
+
+I am very social and may always start the convo first and I love making friends.
+
+Idk why SOME of you guys told me your too scared to approach my cud pile PLS cud I love em, also even if I'm on dni I like cuds and always will, just don't talk to me when on dni thank you.
+
+Ask to inspo.
+
+I'm bad at comforting don't vent to me.
+
+If I respond with nothing to our convo that means Idk what to say or I am busy again don't take it to ya heart
+
+Now read my strawpage for more detailed info if you haven't.
+</details>
+
+<details>
  <summary> ${\textsf{\color{#c4c9d4} oomfs }}$ </summary>
 
 my trio : [Emby](https://github.com/Iiquidsmooth) & [Merisz](https://github.com/deadbridewalking)
