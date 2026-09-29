@@ -32,7 +32,7 @@ Now read my strawpage for more detailed info if you haven't.
 <details>
  <summary> ${\textsf{\color{#c4c9d4} oomfs }}$ </summary>
 
-my trio : [Emby](https://github.com/Iiquidsmooth) & [Merisz](https://github.com/deadbridewalking)
+my trio aka chaos trio : [Emby](https://github.com/Iiquidsmooth) & [Merisz](https://github.com/deadbridewalking)
 
 Fg hello neighbours : [Kai](https://github.com/pyrionlyx) [Kaleb](https://github.com/Glistenn) [Vixxen](https://github.com/VlXXEN) [Camryn](https://github.com/self-preservation8) [Fish](https://github.com/architectfishh) [Flash](https://github.com/flashyl) [Mexion](https://github.com/Princezamadorer) [Bluu](https://github.com/peestainedcarpet) [Jester](https://github.com/Jesters-Circus)
 
