@@ -1,6 +1,6 @@
-![Friends!](https://img.shields.io/badge/Null-e7728f?style=flat&labelColour=e7728f)
+![Friends!](https://img.shields.io/badge/Null-cf8b9d?style=flat&labelColour=e7728f)
 
-[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Null%20soldiers&extraCount=3000&color=fa8ca1&labelColor=e7728f)](https://hits.sh/github.com/Chemicalshot/)
+[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Null%20soldiers&extraCount=6000&color=e4aab4&labelColor=cf8b9d)](https://hits.sh/github.com/Chemicalshot/)
 
  < ♡ [atabook](https://witheredes.atabook.org/) 🌈 [Art dump](https://awzeartdumped.straw.page/) ⚡ [strawpage](https://spokelings.straw.page/) ⬛ [Frozi](https://frozi.lol/wemmbu) 🐟 [guns](https://guns.lol/spokeisheres) 3
 
