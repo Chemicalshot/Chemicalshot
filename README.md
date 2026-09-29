@@ -24,6 +24,8 @@ I'm bad at comforting don't vent to me.
 
 If I respond with nothing to our convo that means Idk what to say or I am busy again don't take it to ya heart
 
+ALSO I bite when interacting, sometimes.
+
 Now read my strawpage for more detailed info if you haven't.
 </details>
 
