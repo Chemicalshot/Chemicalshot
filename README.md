@@ -1,8 +1,10 @@
 ![Friends!](https://img.shields.io/badge/Null-cf8b9d?style=flat&labelColour=e7728f)
 
-[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Null%20soldiers&extraCount=6000&color=e4aab4&labelColor=cf8b9d)](https://hits.sh/github.com/Chemicalshot/)
+[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Null%20Soldiers&extraCount=15000&color=f18fac&labelColor=d88391)](https://hits.sh/github.com/Chemicalshot/)
 
  < ♡ [atabook](https://witheredes.atabook.org/) 🌈 [Art dump](https://awzeartdumped.straw.page/) ⚡ [strawpage](https://spokelings.straw.page/) ⬛ [Frozi](https://frozi.lol/wemmbu) 🐟 [guns](https://guns.lol/spokeisheres) 3
+
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=25&duration=2500&pause=60&color=F789A7&width=435&lines=To+understand+it;Guess+I'd+have+to+be+a+dead+man!)](https://git.io/typing-svg)
 
 <img width="900" height="228" alt="tumblr_c1c8c11a5658ee4c2559b290feb5029d_e84ca761_1280" src="https://github.com/user-attachments/assets/883a37f1-1677-46e4-a38f-d0acf7f64b74" />
 
