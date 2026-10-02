@@ -26,6 +26,14 @@ If I respond with nothing to our convo that means Idk what to say or I am busy a
 
 ALSO I bite when interacting, sometimes.
 
+Kisses are fine-ish? just don't constantly kiss me (unless a oomf)
+
+Don't even cover me at all, unless you didn't mean it thats ok c:
+
+Booping is fine idrc
+
+MOOT ME UP I LOVE FRIENDS >_<
+
 Now read my strawpage for more detailed info if you haven't.
 </details>
 
