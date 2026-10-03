@@ -57,7 +57,7 @@ hmu on whispers if u have a git and ur oomf and u wanna be in OR ata, theres so 
 pt title accounts pls sign my ata with your account name to tell me I cant go through accounts all the time, thx
 
 
-titles yyay : Pt's Wemmbu (on 6 title accounts), Pt's Bon (TWF), Pt's Circus Baby, Pt's Dol9hin, Pt's Adelaide (FS/DG), Pt's Flamefrags, Pt's Doublenurse and ZOMBST Mizisua shipper, Prettiest pt ponies(on 2 accounts), Pt's most online aka online 24/7, pt's Facty, Head Nurse, Spokeishere's biggest fan + the song ATTACKING VERTICAL by femtanyl and ゴキブリの味 by MARETU and pt's Squidswag (as Ashwagg alongside liquidsmooth as Squiddo), Pt's Spokeishere, Top AFK'ers, pt's Sp3, cuddliest players (on 2 accounts) sign my ata if there's any titles I have that I missed :D
+titles yyay : Pt's Wemmbu (on 6 title accounts), Pt's Bon (TWF), Pt's Circus Baby, Pt's Dol9hin, Pt's Adelaide (FS/DG), Pt's Flamefrags, Pt's Doublenurse and ZOMBST Mizisua shipper, Prettiest pt ponies(on 2 accounts), Pt's most online aka online 24/7, pt's Facty, Head Nurse, Spokeishere's biggest fan + the song ATTACKING VERTICAL by femtanyl and ゴキブリの味 by MARETU and pt's Squidswag (as Ashwagg alongside liquidsmooth as Squiddo), Pt's Spokeishere, Top AFK'ers, pt's Sp3, cuddliest players (on 2 accounts), on a title account saying the quote 'Hello guys im feeling jolly' sign my ata if there's any titles I have that I missed :D
 
 
 <img width="2048" height="171" alt="737602c66edc40944b293d32b98ae85bf512043e" src="https://github.com/user-attachments/assets/5896ee4b-1bd7-4d98-8a10-b7732088c024" />
