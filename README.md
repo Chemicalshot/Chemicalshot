@@ -11,8 +11,7 @@
 
 ${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀feel free to cuddle! no need to ask ✦}}$ 
 ⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤ
-
-<p align="center">${\textsf{\color{#COLORHEX}mostly afk working, sleeping or smth else so w2i unless Im active c: }}$ 
+<p align="center">${\textsf{\color{#COLORHEX}mostly afk working, sleeping, etc. so w2i }}$ 
 ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
