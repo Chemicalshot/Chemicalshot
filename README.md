@@ -32,7 +32,13 @@ Don't even cover me at all, unless you didn't mean it thats ok c:
 
 Booping is fine idrc
 
-MOOT ME UP I LOVE FRIENDS >_<
+MOOT ME UP I LOVE FRIENDS
+
+I MOSTLY miss whispers (I dont miss all of them ok) since I'm afk a lot so sign my ata to crown me if it helps c: I'm not ALWAYS afkrotting I can be active I'm not that much of a chud..
+
+Mostly seen at my spot with github Liquidsmooth aka Emby my amazing super cool potential duo C:
+
+I AM extroverted but when not in the mood sometimes I CAN be awkward or annoyed in social settings mood dependant and whoever is fronting so do not take that to heart.
 
 Now read my strawpage for more detailed info if you haven't.
 </details>
