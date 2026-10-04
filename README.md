@@ -14,7 +14,7 @@ Usually offtab, at work, sleeping, afk or busy with something else, whisper to g
 
 Read my dni list please, I also block freely.
 
-I am very social and may always start the convo first and I love making friends.
+I am very social and may always start the convo first and I love making friends. (THIS IS MOOD DEPENDANT)
 
 Idk why SOME of you guys told me your too scared to approach my cud pile PLS cud I love em, also even if I'm on dni I like cuds and always will, just don't talk to me when on dni thank you.
 
