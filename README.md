@@ -1,72 +1,88 @@
-![Friends!](https://img.shields.io/badge/Null-cf8b9d?style=flat&labelColour=e7728f)
+
 
 [![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Null%20Soldiers&extraCount=15000&color=f18fac&labelColor=d88391)](https://hits.sh/github.com/Chemicalshot/)
 
- < ♡ [atabook](https://witheredes.atabook.org/) 🌈 [Art dump](https://awzeartdumped.straw.page/) ⚡ [strawpage](https://spokelings.straw.page/) ⬛ [Frozi](https://frozi.lol/wemmbu) 🐟 [guns](https://guns.lol/spokeisheres) 3
 
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=25&duration=2500&pause=60&color=F789A7&width=435&lines=To+understand+it;Guess+I'd+have+to+be+a+dead+man!)](https://git.io/typing-svg)
 
-<img width="900" height="228" alt="tumblr_c1c8c11a5658ee4c2559b290feb5029d_e84ca761_1280" src="https://github.com/user-attachments/assets/883a37f1-1677-46e4-a38f-d0acf7f64b74" />
 
+<img width="400" src="https://github.com/twixxell/twixxell/blob/e4e611c40e0b7d070e2bc8ea7dd042b6ec6e503b/Untitled87_20261004144216.png" alt="Twixxel" align="right" width="300"/></p>
+
+
+
+${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀feel free to cuddle! no need to ask ✦}}$ 
+⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤ
+
+<p align="center">${\textsf{\color{#COLORHEX} I block freely, mostly afk working, sleeping or smth else so w2i unless Im active c: }}$ 
+ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+
+${\color{#fffff}{\textsf  S-ata!}} \color{#fffff}{\textsf{MAY be awkward in some social settings}} \color{#fffff}{\textsf{ENTJ}}  \color{#fffff}{\textsf{ALWAYS bmf}}$
+<br/>
+
+${\color{#fffff}{\textsf Sp873}} \color{#fffff}{\textsf{Mostly AFK}} \color{#fffff}{\textsf{}}  \color{#fffff}{\textsf{digital clanker bunny TRUST ME C:}}$
+<br/>
+
+<p align="center">${\textsf{\color{#fffff} Taken!}}$ 
+
+${\color{#fffff}{\textsf 🌈⚡}} \color{#fffff}{\textsf{Hello}} \color{#fffff}{\textsf{Null}}  \color{#fffff}{\textsf{Soldiers!}}$
+<br/>
+<br/>
+${\color{#fffff}{\textsf 🐟 }} \color{#fffff}{\textsf{Sleepy guy btw!}} \color{#fffff}{\textsf{Yes we are a system.}}   \color{#fffff}{\textsf{Ask for who is fronting always}}$
+<p align="center">${\textsf{\color{#fffff} Even if on dni feel free to cuddle, just don't ehem, talk to me thats all.}}$
 <details>
- <summary> ${\textsf{\color{#c4c9d4} info }}$ </summary>
-Usually offtab, at work, sleeping, afk or busy with something else, whisper to get my attention.
+ <summary> $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space check \space sp \space for \space info.}$$</summary>
 
-Read my dni list please, I also block freely.
+ (˶' ꒳ '˶) HIHIHI!
+<br>
+<sub>[新book](LINK)</sub> ◜✦◞ <sub>[straw](LINK)</sub> ◜✦◞ <sub>[prns](LINK)</sub> ◜✦◞ <sub>[guns](LINK)</sub> ◜✦◞ <sub>[wall](LINK)</sub>
 
-I am very social and may always start the convo first and I love making friends. (THIS IS MOOD DEPENDANT)
-
-Idk why SOME of you guys told me your too scared to approach my cud pile PLS cud I love em, also even if I'm on dni I like cuds and always will, just don't talk to me when on dni thank you.
-
-Ask to inspo.
-
-I'm bad at comforting don't vent to me.
-
-If I respond with nothing to our convo that means Idk what to say or I am busy again don't take it to ya heart
-
-ALSO I bite when interacting, sometimes.
-
-Kisses are fine-ish? just don't constantly kiss me (unless a oomf)
-
-Don't even cover me at all, unless you didn't mean it thats ok c:
-
-Booping is fine idrc
-
-MOOT ME UP I LOVE FRIENDS
-
-I MOSTLY miss whispers (I dont miss all of them ok) since I'm afk a lot so sign my ata to crown me if it helps c: I'm not ALWAYS afkrotting I can be active I'm not that much of a chud..
-
-Mostly seen at my spot with github Liquidsmooth aka Emby! we are Wiredthorn duo C:
-
-I rarely sign people whom I am not friends withs atabooks, unless I find you very cool..
-
-I AM extroverted but when not in the mood sometimes I CAN be awkward or annoyed in social settings mood dependant and whoever is fronting so do not take that to heart.
-
-Now read my strawpage for more detailed info if you haven't.
 </details>
 
-<details>
- <summary> ${\textsf{\color{#c4c9d4} oomfs }}$ </summary>
 
+<br/>
+<p align="center">${\textsf{\color{#fffff} }}$ 
+ 
+<details>
+ <summary> 
+
+</details>
+
+
+<br/>
+<p aling="center">⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
+<img src="https://github.com/AcxerSonnellino/AcxerSonnellino/blob/e9851af1ec82091ab34673e338c90d9b3a357529/tumblr_d0cee632d56c2adbadbc82179c66e9d5_a8586f26_75.gif" width="30" />
+  ° Ty to the reward accounts that have mentioned me. <img src="https://github.com/AcxerSonnellino/AcxerSonnellino/blob/0ee696b72b608327069640ef824615bd026d533e/tumblr_287d13cb87f6f46a872ba010276a6efc_a030fdc2_75.gif" width="30" />
+</p>
+
+◜✦◞
+ㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+⺡ㅤ🌈﹒   ⠀ ⠀ ⠀ ⠀ ⠀            `You become the one you hated.`
+
+<br/>
+<p align="center">${\textsf{\color{#fffff} <3}}$ 
+ 
+
+</details>
+
+
+<br/>
+<p align="center">${\textsf{\color{#fffff} —}}$ 
+ 
+<details>
+
+ <summary> $${\color{#FFFFFF}Click \space to \space see \space oomfie's}$$</summary> 
+
+
+
+ $${\color{#FFFFFF} 🌈 \space  🐟}$$  <sub>[]()</sub> <sub>[]() </sub>
+<br/>
+<br/>
+$${\color{#FFFFF} My \space cool \space friends \space + \space trio \space and \space party!}$$  <sub></sub>
+<br/>
+<br/>
+$${\color{#FFFFFF}  }$$ ♡
 my trio aka chaos trio : [Emby](https://github.com/Iiquidsmooth) & [Merisz](https://github.com/deadbridewalking)
 
 Fg hello neighbours : [Kai](https://github.com/pyrionlyx) [Kaleb](https://github.com/Glistenn) [Vixxen](https://github.com/VlXXEN) [Camryn](https://github.com/self-preservation8) [Fish](https://github.com/architectfishh) [Flash](https://github.com/flashyl) [Mexion](https://github.com/Princezamadorer) [Bluu](https://github.com/peestainedcarpet) [Jester](https://github.com/Jesters-Circus)
 
-OOMFS! : [Michael](https://github.com/traummannn) [Jollibee](https://github.com/RottingEcho) [Mori](https://github.com/beauty-clown) [Jay](https://github.com/putmetorestimnotyourstosave) [Rakviyem](https://github.com/rakviyem) [Noah](https://github.com/IHASAFACE-LULZ) [Verity](https://github.com/verjty) [SIXEYES](https://github.com/SlXEYES) [Zack](https://github.com/zackingaround) [infinitelygrey](https://github.com/infinitelygrey) [Pei](https://github.com/iloveoishisomuch) [Felix](https://github.com/felixylixywoah) [Aspen](https://github.com/carcrashxoxo) [Sexual5](https://github.com/sexual5) [Bipperism](https://github.com/bipperism) [Sam](https://github.com/cr0ssroads) [sl3epz](https://github.com/sl3epzz) [Larpchan](https://github.com/larpchan) [Lawrie](https://github.com/LAWRlE) [Angel](https://github.com/bl00mingNightshade) [Laxie](https://github.com/Lax1e) [MILES](https://github.com/42-MILES) [WoundedRibbons](https://github.com/WoundedRibbons) [Wish](https://github.com/wishlizx) [Elv](https://github.com/LV-VL4) [Mafioso](https://github.com/SONNELLINOENTHUSIAST) [Leo](https://github.com/Koushiro-Izzy) [Two Time](https://github.com/coffeejeellyyy) [Kaz](https://github.com/poisonedRitual) [Sixteen](https://github.com/YourMyReality) [Avery](https://github.com/wickedirene) [Dummy](https://github.com/DuMmY-Yo) [Acx](https://github.com/AcxerSonnellino) [Dr Vanta](https://github.com/dr-vanta) [Aven](https://github.com/avenueq) [Sem](https://github.com/obscne) [Bwon](https://github.com/fourtysevenstreaks) [Alexei](https://github.com/inmynewlife), [Willow](https://github.com/toastedmarshmellows) [Mustard](https://github.com/mustard-fragger)
-
-hmu on whispers if u have a git and ur oomf and u wanna be in OR ata, theres so many of u chungies :D
-</details>
-
-
-<img width="1280" height="720" alt="tumblr_4b6a0ab924c26ba81bb9dbcb196d77bc_cfaad411_1280" src="https://github.com/user-attachments/assets/4467f654-8b9c-46f9-a6bf-0e8b0fa35282" />
-
-
-
-pt title accounts pls sign my ata with your account name to tell me I cant go through accounts all the time, thx
-
-
-titles yyay : Pt's Wemmbu (on 6 title accounts), Pt's Bon (TWF), Pt's Circus Baby, Pt's Dol9hin, Pt's Adelaide (FS/DG), Pt's Flamefrags, Pt's Doublenurse and ZOMBST Mizisua shipper, Prettiest pt ponies(on 2 accounts), Pt's most online aka online 24/7, pt's Facty, Head Nurse, Spokeishere's biggest fan + the song ATTACKING VERTICAL by femtanyl and ゴキブリの味 by MARETU and pt's Squidswag (as Ashwagg alongside liquidsmooth as Squiddo), Pt's Spokeishere, Top AFK'ers, pt's Sp3, cuddliest players (on 2 accounts), on a title account saying the quote 'Hello guys im feeling jolly' sign my ata if there's any titles I have that I missed :D
-
-
-<img width="2048" height="171" alt="737602c66edc40944b293d32b98ae85bf512043e" src="https://github.com/user-attachments/assets/5896ee4b-1bd7-4d98-8a10-b7732088c024" />
-
+OOMFS! : [Michael](https://github.com/traummannn) [Jollibee](https://github.com/RottingEcho) [Mori](https://github.com/beauty-clown) [Jay](https://github.com/putmetorestimnotyourstosave) [Rakviyem](https://github.com/rakviyem) [Noah](https://github.com/IHASAFACE-LULZ) [Verity](https://github.com/verjty) [SIXEYES](https://github.com/SlXEYES) [Zack](https://github.com/zackingaround) [infinitelygrey](https://github.com/infinitelygrey) [Pei](https://github.com/iloveoishisomuch) [Felix](https://github.com/felixylixywoah) [Aspen](https://github.com/carcrashxoxo) [Sexual5](https://github.com/sexual5) [Bipperism](https://github.com/bipperism) [Sam](https://github.com/cr0ssroads) [sl3epz](https://github.com/sl3epzz) [Larpchan](https://github.com/larpchan) [Lawrie](https://github.com/LAWRlE) [Angel](https://github.com/bl00mingNightshade) [Laxie](https://github.com/Lax1e) [MILES](https://github.com/42-MILES) [WoundedRibbons](https://github.com/WoundedRibbons) [Wish](https://github.com/wishlizx) [Elv](https://github.com/LV-VL4) [Mafioso](https://github.com/SONNELLINOENTHUSIAST) [Leo](https://github.com/Koushiro-Izzy) [Two Time](https://github.com/coffeejeellyyy) [Kaz](https://github.com/poisonedRitual) [Sixteen](https://github.com/YourMyReality) [Avery](https://github.com/wickedirene) [Dummy](https://github.com/DuMmY-Yo) [Acx](https://github.com/AcxerSonnellino) [Dr Vanta](https://github.com/dr-vanta) [Aven](https://github.com/avenueq) [Sem](https://github.com/obscne) [Bwon](https://github.com/fourtysevenstreaks) [Alexei](https://github.com/inmynewlife), [Willow](https://github.com/toastedmarshmellows) [Mustard](https://github.com/mustard-fragger) [Twixxel](https://github.com/Twixxel-Lessgo) [Subspace](https://github.com/SUBSP4CE)
