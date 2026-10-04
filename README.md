@@ -36,7 +36,7 @@ MOOT ME UP I LOVE FRIENDS
 
 I MOSTLY miss whispers (I dont miss all of them ok) since I'm afk a lot so sign my ata to crown me if it helps c: I'm not ALWAYS afkrotting I can be active I'm not that much of a chud..
 
-Mostly seen at my spot with github Liquidsmooth aka Emby my amazing super cool potential duo C:
+Mostly seen at my spot with github Liquidsmooth aka Emby! we are Wiredthorn duo C:
 
 I AM extroverted but when not in the mood sometimes I CAN be awkward or annoyed in social settings mood dependant and whoever is fronting so do not take that to heart.
 
