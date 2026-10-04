@@ -38,6 +38,8 @@ I MOSTLY miss whispers (I dont miss all of them ok) since I'm afk a lot so sign 
 
 Mostly seen at my spot with github Liquidsmooth aka Emby! we are Wiredthorn duo C:
 
+I rarely sign people whom I am not friends withs atabooks, unless I find you very cool..
+
 I AM extroverted but when not in the mood sometimes I CAN be awkward or annoyed in social settings mood dependant and whoever is fronting so do not take that to heart.
 
 Now read my strawpage for more detailed info if you haven't.
