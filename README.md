@@ -33,7 +33,7 @@ ${\color{#fffff}{\textsf 🐟 }} \color{#fffff}{\textsf{Sleepy guy btw!}} \c
 
  (˶' ꒳ '˶) HIHIHI!
 <br>
-<sub>[新book](LINK)</sub> ◜✦◞ <sub>[straw](LINK)</sub> ◜✦◞ <sub>[prns](LINK)</sub> ◜✦◞ <sub>[guns](LINK)</sub> ◜✦◞ <sub>[wall](LINK)</sub>
+<sub>[新book](https://witheredes.atabook.org/?page=1)</sub> ◜✦◞ <sub>[straw](https://spokelings.straw.page/)</sub> ◜✦◞ <sub>[frozi](https://frozi.lol/wemmbu)</sub> ◜✦◞ <sub>[guns](https://guns.lol/spokeisheres)</sub> ◜✦◞ 
 
 </details>
 
