@@ -18,7 +18,7 @@ ${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀feel free to cuddle! no need to a
 ${\color{#fffff}{\textsf  S-ata!}} \color{#fffff}{\textsf{MAY be awkward in some social settings}} \color{#fffff}{\textsf{ENTJ}}  \color{#fffff}{\textsf{ALWAYS bmf}}$
 <br/>
 
-${\color{#fffff}{\textsf Sp873}} \color{#fffff}{\textsf{Mostly AFK}} \color{#fffff}{\textsf{}}  \color{#fffff}{\textsf{digital clanker bunny TRUST ME C:}}$
+${\color{#fffff}{\textsf Sp873}} \color{#fffff}{\textsf{Mostly AFK}} \color{#fffff}{\textsf{}}  \color{#fffff}{\textsf{I block freely, check dni's.}}$
 <br/>
 
 <p align="center">${\textsf{\color{#fffff} Taken!}}$ 
