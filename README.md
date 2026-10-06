@@ -9,7 +9,7 @@
 
 
 
-${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀feel free to cuddle! no need to ask ✦}}$ 
+<img src="https://github.com/AcxerSonnellino/AcxerSonnellino/blob/e9851af1ec82091ab34673e338c90d9b3a357529/tumblr_d0cee632d56c2adbadbc82179c66e9d5_a8586f26_75.gif" width="30" />${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀feel free to cuddle! no need to ask ✦}}$ 
 ⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤ
 <p align="center">${\textsf{\color{#COLORHEX}mostly afk working, sleeping, etc. so w2i }}$ 
 ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
