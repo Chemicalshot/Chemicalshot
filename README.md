@@ -2,7 +2,7 @@
 
 [![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Null%20Soldiers&extraCount=15000&color=f18fac&labelColor=d88391)](https://hits.sh/github.com/Chemicalshot/)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Garamond&size=23&duration=2000&pause=700&color=F4F1F7&width=435&lines=One+day+I'll+get+you+in+my+hands..;AND+I'LL+PLAY+WITH+YOU!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=26&duration=1600&pause=10&color=E4E0F7&width=435&lines=You're+walking+down+a+hallway...;TAKE+A+LEFT!;You're+walking+down+a+hallway...;TAKE+A+RIGHT!)](https://git.io/typing-svg)
 
 
 <img width="400" src="https://github.com/twixxell/twixxell/blob/e4e611c40e0b7d070e2bc8ea7dd042b6ec6e503b/Untitled87_20261004144216.png" alt="Twixxel" align="right" width="300"/></p>
