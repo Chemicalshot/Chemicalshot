@@ -5,30 +5,9 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=26&duration=1600&pause=10&color=E4E0F7&width=435&lines=You're+walking+down+a+hallway...;TAKE+A+LEFT!;You're+walking+down+a+hallway...;TAKE+A+RIGHT!)](https://git.io/typing-svg)
 
 
-<img width="400" src="https://github.com/twixxell/twixxell/blob/e4e611c40e0b7d070e2bc8ea7dd042b6ec6e503b/Untitled87_20261004144216.png" alt="Twixxel" align="right" width="300"/></p>
-
-
 
 <img src="https://github.com/AcxerSonnellino/AcxerSonnellino/blob/e9851af1ec82091ab34673e338c90d9b3a357529/tumblr_d0cee632d56c2adbadbc82179c66e9d5_a8586f26_75.gif" width="30" />${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀feel free to cuddle! no need to ask ✦}}$ 
-⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤ
-<p align="center">${\textsf{\color{#COLORHEX}mostly afk working, sleeping, etc. so w2i }}$ 
-ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
-${\color{#fffff}{\textsf  S-ata!}} \color{#fffff}{\textsf{MAY be awkward in some social settings}} \color{#fffff}{\textsf{ENTJ}}  \color{#fffff}{\textsf{ALWAYS bmf}}$
-<br/>
-
-${\color{#fffff}{\textsf Sp873}} \color{#fffff}{\textsf{Mostly AFK}} \color{#fffff}{\textsf{}}  \color{#fffff}{\textsf{I block freely, check dni's.}}$
-<br/>
-
-<p align="center">${\textsf{\color{#fffff} Taken!}}$ 
-
-${\color{#fffff}{\textsf 🌈⚡}} \color{#fffff}{\textsf{Hello}} \color{#fffff}{\textsf{Null}}  \color{#fffff}{\textsf{Soldiers!}}$
-<br/>
-<br/>
-${\color{#fffff}{\textsf 🐟 }} \color{#fffff}{\textsf{Sleepy guy btw!}} \color{#fffff}{\textsf{Yes we are a system.}}   \color{#fffff}{\textsf{Ask for who is fronting always}}$
-<p align="center">${\textsf{\color{#fffff} Even if on dni feel free to cuddle, just don't ehem, talk to me thats all.}}$
-<details>
  <summary> $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space check \space sp \space for \space info.}$$</summary>
 
  (˶' ꒳ '˶) HIHIHI!
