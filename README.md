@@ -42,8 +42,8 @@ $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space chec
 ㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ⺡ㅤ🫟﹒   ⠀ ⠀ ⠀ ⠀ ⠀            `Just a weapon.`
 
-</details>
- <summary> $${\color{#FFFFFF}Click \space to \space see \space oomfie's}$$</summary> 
+<details>
+ <summary> 
 
 
 
@@ -62,6 +62,7 @@ BEST FRIENDS: [Sam](https://github.com/oddyseyduo) [Michael](https://github.com/
 
 My cool Null Soldiers :  [Jay](https://github.com/putmetorestimnotyourstosave) [Rakviyem](https://github.com/rakviyem) [Noah](https://github.com/IHASAFACE-LULZ) [Verity](https://github.com/verjty) [Zack](https://github.com/zackingaround) [infinitelygrey](https://github.com/infinitelygrey) [Pei](https://github.com/iloveoishisomuch) [Sexual5](https://github.com/sexual5) [Bipperism](https://github.com/bipperism) [sl3epz](https://github.com/sl3epzz) [Larpchan](https://github.com/larpchan) [Lawrie](https://github.com/LAWRlE) [Angel](https://github.com/bl00mingNightshade) [Laxie](https://github.com/Lax1e) [MILES](https://github.com/42-MILES) [WoundedRibbons](https://github.com/Mystreeted) [Elv](https://github.com/LV-VL4) [Leo](https://github.com/Koushiro-Izzy) [Kaz](https://github.com/poisonedRitual) [Sixteen](https://github.com/YourMyReality) [Avery](https://github.com/wickedirene) [Dummy](https://github.com/DuMmY-Yo) [Acx](https://github.com/AcxerSonnellino) [Dr Vanta](https://github.com/dr-vanta) [Aven](https://github.com/avenueq) [Sem](https://github.com/obscne) [Alexei](https://github.com/inmynewlife), [Willow](https://github.com/toastedmarshmellows) [Mustard](https://github.com/mustard-fragger) [Twixxel](https://github.com/Twixxel-Lessgo) [Subspace](https://github.com/SUBSP4CE) [Aspen](https://github.com/carcrashxoxo)
 
+</details>
 
 <br/>
 <p align="center">${\textsf{\color{#fffff} <3}}$ 
