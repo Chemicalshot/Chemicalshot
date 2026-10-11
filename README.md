@@ -42,6 +42,7 @@ $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space chec
 ㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ⺡ㅤ🫟﹒   ⠀ ⠀ ⠀ ⠀ ⠀            `Just a weapon.`
 
+</details>
  <summary> $${\color{#FFFFFF}Click \space to \space see \space oomfie's}$$</summary> 
 
 
