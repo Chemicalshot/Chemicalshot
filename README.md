@@ -40,7 +40,7 @@ $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space chec
 
 ◜✦◞
 ㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-⺡ㅤ🫟﹒   ⠀ ⠀ ⠀ ⠀ ⠀            `You become the one you hated.`
+⺡ㅤ🫟﹒   ⠀ ⠀ ⠀ ⠀ ⠀            `Just a weapon.`
 
 <br/>
 <p align="center">${\textsf{\color{#fffff} <3}}$ 
@@ -58,7 +58,7 @@ $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space chec
 
 
 
- $${\color{#FFFFFF} 🌈 \space  🐟}$$  <sub>[]()</sub> <sub>[]() </sub>
+
 <br/>
 <br/>
 $${\color{#FFFFF} My \space cool \space friends \space + \space trio \space and \space party!}$$  <sub></sub>
