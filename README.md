@@ -44,7 +44,8 @@ $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space chec
 
 <details>
  <summary> 
-<br/>
+
+  <br/>
 <br/>
 $${\color{#FFFFF} My \space cool \space friends \space + \space trio \space and \space party!}$$  <sub></sub>
 <br/>
