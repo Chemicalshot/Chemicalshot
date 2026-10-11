@@ -51,7 +51,7 @@ $${\color{#FFFFF} My \space cool \space friends \space + \space trio \space and 
 <br/>
 <br/>
 $${\color{#FFFFFF}  }$$ ♡
-my trio aka chaos trio : [Emby](https://github.com/Iiquidsmooth) & [Merisz](https://github.com/deadbridewalking)
+my trio aka chaos trio : [Emby](https://github.com/Iiquidsmooth)  [Merisz](https://github.com/deadbridewalking)
 
 My basement.. gulp : [Kai](https://github.com/pyrionlyx) [Kaleb](https://github.com/Glistenn) [Vixxen](https://github.com/VlXXEN) [Camryn](https://github.com/self-preservation8) [Fish](https://github.com/architectfishh) [Flash](https://github.com/flashyl) [Mexion](https://github.com/Princezamadorer) [Bluu](https://github.com/peestainedcarpet) [Jester](https://github.com/Jesters-Circus)
 
