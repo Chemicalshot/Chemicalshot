@@ -1,10 +1,13 @@
 <img width="1280" height="50" alt="tumblr_d6814e19fb04277fdf218961874010af_c8d3747a_1280" src="https://github.com/user-attachments/assets/56535eea-d410-49df-8e96-2b0d32fcf4d0" />
 
-[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Null%20Soldiers&extraCount=15000&color=f18fac&labelColor=d88391)](https://hits.sh/github.com/Chemicalshot/)
+[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Nuke%20shots&extraCount=20000&color=7124a9&labelColor=2f1e47)](https://hits.sh/github.com/Chemicalshot/)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=26&duration=1600&pause=10&color=E4E0F7&width=435&lines=You're+walking+down+a+hallway...;TAKE+A+LEFT!;You're+walking+down+a+hallway...;TAKE+A+RIGHT!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times&size=25&duration=2000&pause=199&color=8058CF&width=435&lines=I+know+I+must+destroy+it;Or+it..;Will+destroy+me)](https://git.io/typing-svg)
 
-
+$${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space check \space sp \space for \space info.}$$</summary>
+ (￣o￣) . z Z
+<br>
+<sub>[新book](https://witheredes.atabook.org/?page=1)</sub> ◜✦◞ <sub>[straw](https://spokelings.straw.page/)</sub> ◜✦◞ <sub>[frozi](https://frozi.lol/wemmbu)</sub> ◜✦◞ <sub>[guns](https://guns.lol/spokeisheres)</sub> ◜✦◞ 
 
 <img width="2048" height="1536" alt="awze" src="https://github.com/user-attachments/assets/77d3d9c8-e829-4c39-a8ad-409594b2772c" />
 
@@ -16,10 +19,6 @@
 <img src="https://github.com/AcxerSonnellino/AcxerSonnellino/blob/e9851af1ec82091ab34673e338c90d9b3a357529/tumblr_d0cee632d56c2adbadbc82179c66e9d5_a8586f26_75.gif" width="30" />${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀feel free to cuddle! no need to ask ✦}}$ 
 
 
-$${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space check \space sp \space for \space info.}$$</summary>
- (￣o￣) . z Z
-<br>
-<sub>[新book](https://witheredes.atabook.org/?page=1)</sub> ◜✦◞ <sub>[straw](https://spokelings.straw.page/)</sub> ◜✦◞ <sub>[frozi](https://frozi.lol/wemmbu)</sub> ◜✦◞ <sub>[guns](https://guns.lol/spokeisheres)</sub> ◜✦◞ 
 
 </details>
 
