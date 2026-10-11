@@ -8,9 +8,9 @@
 
 <img src="https://github.com/AcxerSonnellino/AcxerSonnellino/blob/e9851af1ec82091ab34673e338c90d9b3a357529/tumblr_d0cee632d56c2adbadbc82179c66e9d5_a8586f26_75.gif" width="30" />${\textsf{\color{#COLORHEX} (✿˃ ᗜ ˂˵)⠀feel free to cuddle! no need to ask ✦}}$ 
 
- <summary> $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space check \space sp \space for \space info.}$$</summary>
+ $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space check \space sp \space for \space info.}$$</summary>
 
- (˶' ꒳ '˶) HIHIHI!
+ (￣o￣) . z Z
 <br>
 <sub>[新book](https://witheredes.atabook.org/?page=1)</sub> ◜✦◞ <sub>[straw](https://spokelings.straw.page/)</sub> ◜✦◞ <sub>[frozi](https://frozi.lol/wemmbu)</sub> ◜✦◞ <sub>[guns](https://guns.lol/spokeisheres)</sub> ◜✦◞ 
 
