@@ -41,15 +41,12 @@ $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space chec
 ◜✦◞
 ㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ⺡ㅤ🫟﹒   ⠀ ⠀ ⠀ ⠀ ⠀            `Just a weapon.`
+ 
 
-<details>
- <summary> 
+ <details>
+      <summary> Click to see my trio, party, closest friends and other oomfies! </summary>
 
-  <br/>
-<br/>
-$${\color{#FFFFF} My \space cool \space friends \space + \space trio \space and \space party!}$$  <sub></sub>
-<br/>
-<br/>
+
 
 trio : [Emby](https://github.com/Iiquidsmooth)  and [Merisz](https://github.com/deadbridewalking)
 
