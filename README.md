@@ -16,7 +16,7 @@ $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space chec
 
 
 
-(✿˃ ᗜ ˂˵)⠀feel free to cuddle! no need to ask ✦}}$ 
+(✿˃ ᗜ ˂˵)⠀feel free to cuddle! no need to ask ✦
 
 
 
