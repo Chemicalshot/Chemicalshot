@@ -50,8 +50,8 @@ $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space chec
 $${\color{#FFFFF} My \space cool \space friends \space + \space trio \space and \space party!}$$  <sub></sub>
 <br/>
 <br/>
-$${\color{#FFFFFF}  }$$ ♡
-my trio aka chaos trio : [Emby](https://github.com/Iiquidsmooth) and [Merisz](https://github.com/deadbridewalking)
+
+trio : [Emby](https://github.com/Iiquidsmooth)  and [Merisz](https://github.com/deadbridewalking)
 
 My basement.. gulp : [Kai](https://github.com/pyrionlyx) [Kaleb](https://github.com/Glistenn) [Vixxen](https://github.com/VlXXEN) [Camryn](https://github.com/self-preservation8) [Fish](https://github.com/architectfishh) [Flash](https://github.com/flashyl) [Mexion](https://github.com/Princezamadorer) [Bluu](https://github.com/peestainedcarpet) [Jester](https://github.com/Jesters-Circus)
 
