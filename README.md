@@ -2,7 +2,7 @@
 
 [![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Nuke%20shots&extraCount=20000&color=7124a9&labelColor=2f1e47)](https://hits.sh/github.com/Chemicalshot/)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times&size=25&duration=2000&pause=199&color=8058CF&width=435&lines=I+know+I+must+destroy+it;Or+it..;Will+destroy+me)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Garamond&size=25&duration=2000&pause=130&color=B67DF7&width=435&lines=You+will+understand;Mechanical+hands;Are+the+ruler+of+everything;The+ruler+of+everything;I'm+the+ruler+of+everything;In+the+end.)](https://git.io/typing-svg)
 
 $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space check \space sp \space for \space info.}$$</summary>
  (￣o￣) . z Z
