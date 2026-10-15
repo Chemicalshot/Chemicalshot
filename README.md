@@ -9,7 +9,6 @@ $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space chec
 <br>
 <sub>[新book](https://witheredes.atabook.org/?page=1)</sub> ◜✦◞ <sub>[straw](https://spokelings.straw.page/)</sub> ◜✦◞ <sub>[frozi](https://frozi.lol/wemmbu)</sub> ◜✦◞ <sub>[guns](https://guns.lol/spokeisheres)</sub> ◜✦◞ 
 
-<img width="2048" height="1536" alt="awze" src="https://github.com/user-attachments/assets/77d3d9c8-e829-4c39-a8ad-409594b2772c" />
 
 
 
