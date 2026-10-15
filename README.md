@@ -4,6 +4,9 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Garamond&size=25&duration=2000&pause=130&color=B67DF7&width=435&lines=You+will+understand;Mechanical+hands;Are+the+ruler+of+everything;The+ruler+of+everything;I'm+the+ruler+of+everything;In+the+end.)](https://git.io/typing-svg)
 
+<img width="266" height="242" alt="image" src="https://github.com/user-attachments/assets/10411b13-3b38-42a1-adf7-986ad631bf40" />
+
+
 $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space check \space sp \space for \space info.}$$</summary>
  (￣o￣) . z Z
 <br>
