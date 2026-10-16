@@ -52,7 +52,7 @@ $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space chec
 
 trio : [Emby](https://github.com/Iiquidsmooth)  and [Merisz](https://github.com/deadbridewalking)
 
-My basement.. gulp : [Kai](https://github.com/pyrionlyx) [Kaleb](https://github.com/Glistenn) [Vixxen](https://github.com/VlXXEN) [Camryn](https://github.com/self-preservation8) [Fish](https://github.com/architectfishh) [Flash](https://github.com/flashyl) [Mexion](https://github.com/Princezamadorer) [Bluu](https://github.com/peestainedcarpet) [Jester](https://github.com/Jesters-Circus)
+My basement.. gulp : [Kaleb](https://github.com/Glistenn) [Vixxen](https://github.com/VlXXEN) [Camryn](https://github.com/self-preservation8) [Fish](https://github.com/architectfishh) [Flash](https://github.com/flashyl) [Mexion](https://github.com/Princezamadorer) [Bluu](https://github.com/peestainedcarpet) [Jester](https://github.com/Jesters-Circus)
 
 BEST FRIENDS: [Sam](https://github.com/oddyseyduo) [Michael](https://github.com/traummannn) [Jollibee](https://github.com/RottingEcho) [Felix](https://github.com/felixylixywoah) [Parrot](https://github.com/SPX2IsHere) [Bwon](https://github.com/fourtysevenstreaks) [Mafioso](https://github.com/SONNELLINOENTHUSIAST) [Two Time](https://github.com/coffeejeellyyy) [Mori](https://github.com/beauty-clown) [Wish](https://github.com/wishlizx)
 
