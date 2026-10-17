@@ -51,7 +51,7 @@ feel free to cuddle! no need to ask. :-)
 
 ◜✦◞
 ㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ㅤㅤㅤㅤㅤ                  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-⺡ㅤ🫟﹒   ⠀ ⠀ ⠀ ⠀ ⠀            `Just a weapon.`
+⺡ㅤ🫟🔪﹒   ⠀ ⠀ ⠀ ⠀ ⠀            `run rabbit, run rabbit, run, run run.`
  
 
  <details>
