@@ -9,7 +9,7 @@
     </tr>
   </table>
 
-[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Nuke%20shots&extraCount=20000&color=7124a9&labelColor=2f1e47)](https://hits.sh/github.com/Chemicalshot/)
+[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Hearts%20(%E2%81%A0%E2%9C%BF%E2%81%A0%5E%E2%81%A0%E2%80%BF%E2%81%A0%5E%E2%81%A0)&extraCount=40000&color=512077&labelColor=38224d)](https://hits.sh/github.com/Chemicalshot/)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Garamond&size=25&duration=2000&pause=130&color=B67DF7&width=435&lines=You+will+understand;Mechanical+hands;Are+the+ruler+of+everything;The+ruler+of+everything;I'm+the+ruler+of+everything;In+the+end.)](https://git.io/typing-svg)
 
