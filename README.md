@@ -1,5 +1,14 @@
 <img width="1280" height="50" alt="tumblr_d6814e19fb04277fdf218961874010af_c8d3747a_1280" src="https://github.com/user-attachments/assets/56535eea-d410-49df-8e96-2b0d32fcf4d0" />
 
+<br>  
+  <table>
+    <tr>
+      <td>
+     <img src="https://file.garden/aYcjB7qxDC3tLALZ/spokegithub/spoke_bubbles.gif" width="20"> (►__◄)
+      </td>
+    </tr>
+  </table>
+
 [![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Nuke%20shots&extraCount=20000&color=7124a9&labelColor=2f1e47)](https://hits.sh/github.com/Chemicalshot/)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Garamond&size=25&duration=2000&pause=130&color=B67DF7&width=435&lines=You+will+understand;Mechanical+hands;Are+the+ruler+of+everything;The+ruler+of+everything;I'm+the+ruler+of+everything;In+the+end.)](https://git.io/typing-svg)
