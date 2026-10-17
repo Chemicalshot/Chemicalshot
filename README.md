@@ -17,7 +17,7 @@
 
 
 $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space check \space sp \space for \space info.}$$</summary>
- (￣o￣) . z Z
+ <img wdith="25" src="https://i.imgur.com/I9nZyUU.gif">
 <br>
 <sub>[新book](https://witheredes.atabook.org/?page=1)</sub> ◜✦◞ <sub>[straw](https://spokelings.straw.page/)</sub> ◜✦◞ <sub>[frozi](https://frozi.lol/wemmbu)</sub> ◜✦◞ <sub>[guns](https://guns.lol/spokeisheres)</sub> ◜✦◞ 
 
