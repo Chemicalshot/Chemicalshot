@@ -4,7 +4,7 @@
   <table>
     <tr>
       <td>
-     (►__◄)
+    <img wdith="25" src="https://i.imgur.com/I9nZyUU.gif"> (►__◄)
       </td>
     </tr>
   </table>
