@@ -4,7 +4,7 @@
   <table>
     <tr>
       <td>
-     <img src="https://file.garden/aYcjB7qxDC3tLALZ/spokegithub/spoke_bubbles.gif" width="20"> (►__◄)
+     (►__◄)
       </td>
     </tr>
   </table>
