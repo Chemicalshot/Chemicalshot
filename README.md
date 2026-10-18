@@ -9,8 +9,6 @@
     </tr>
   </table>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=25&duration=1800&pause=10&color=A656F7&width=435&lines=If+you+wanna+hit+the+hay;Then+come+on+down!;The+lazy+horse+mattress;BEST+IN+TOWN!)](https://git.io/typing-svg)
-
 <img width="266" height="242" alt="image" src="https://github.com/user-attachments/assets/10411b13-3b38-42a1-adf7-986ad631bf40" />
 
 
