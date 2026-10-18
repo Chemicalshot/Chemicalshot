@@ -9,6 +9,8 @@
     </tr>
   </table>
 
+  [![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Hearts%20(%E2%81%A0%E2%9C%BF%E2%81%A0%5E%E2%81%A0%E2%80%BF%E2%81%A0%5E%E2%81%A0)&extraCount=50000&color=6211cc&labelColor=472177)](https://hits.sh/github.com/Chemicalshot/)
+
 <img width="266" height="242" alt="image" src="https://github.com/user-attachments/assets/10411b13-3b38-42a1-adf7-986ad631bf40" />
 
 
