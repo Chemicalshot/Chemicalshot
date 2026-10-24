@@ -9,7 +9,7 @@
     </tr>
   </table>
 
-  [![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Hearts%20(%E2%81%A0%E2%9C%BF%E2%81%A0%5E%E2%81%A0%E2%80%BF%E2%81%A0%5E%E2%81%A0)&extraCount=50000&color=6211cc&labelColor=472177)](https://hits.sh/github.com/Chemicalshot/)
+[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Nuke%20shots&extraCount=60000&color=632798&labelColor=512681)](https://hits.sh/github.com/Chemicalshot/)
 
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=26&duration=2500&pause=100&color=A660F7&width=435&lines=Jealousy%2C+Jealousy%2C+JEALOUSY!;It's+such+a+evil+thing..;To+watch+someone+have;jealousy%2C+jealousy%2C+JEALOUSY!)](https://git.io/typing-svg)
 
