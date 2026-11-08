@@ -9,18 +9,16 @@
  <p align="center">    </tr>
  <p align="center">  </table>
 
- <p align="center">
- <p align="center">
-
+ <p align="center"><a href="https://hits.sh/github.com/Chemicalshot/"><img alt="Hits" src="https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=NULL&extraCount=70000&color=0c0f1f&labelColor=000001"/></a>
+  
+   <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Georgia&size=18&duration=2500&pause=100&color=FFFFFF&center=true&vCenter=true&width=435&lines=Are+you+seriously+going+back%3F;THIS+IS+WHAT+JAMATO+WANTS!;HE+WANTS+YOU+TO+RUN+AWAY+FROM+ME!" alt="Typing SVG" /></a>
  <p align="center"><img width="290" height="283" alt="image" src="https://github.com/user-attachments/assets/67ee1709-f50d-445e-9547-406242639dd5" />
 
 
 
 
-$${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space check \space sp \space for \space info.}$$</summary>
- <img width="25" src="https://i.imgur.com/P7DdYGv.gif">
-<br>
-<sub>[新book](https://witheredes.atabook.org/?page=1)</sub> ◜✦◞ <sub>[straw](https://spokelings.straw.page/)</sub> ◜✦◞ <sub>[frozi](https://frozi.lol/wemmbu)</sub> ◜✦◞ <sub>[guns](https://guns.lol/spokeisheres)</sub> ◜✦◞ <sub>[frozi 2](https://frozi.lol/dol9hin)</sub> ◜✦◞
+   <p align="center">$\color{#0092ff}{\textsf{It's such a evil thing. }}$
+   <p align="center"><sub>[新book](https://witheredes.atabook.org/?page=1)</sub> _ <sub>[straw]   <p(https://spokelings.straw.page/)</sub> _ <sub>[frozi](https://frozi.lol/wemmbu)</sub> _ <sub>[guns](https://guns.lol/spokeisheres)</sub> _ <sub>[frozi 2](https://frozi.lol/dol9hin)</sub>
 
 
 
