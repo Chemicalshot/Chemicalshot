@@ -1,19 +1,20 @@
 <img width="1280" height="50" alt="tumblr_d6814e19fb04277fdf218961874010af_c8d3747a_1280" src="https://github.com/user-attachments/assets/56535eea-d410-49df-8e96-2b0d32fcf4d0" />
 
-<br>  
-  <table>
-    <tr>
-      <td>
-    <img wdith="25" src="https://i.imgur.com/I9nZyUU.gif"> (►__◄)
-      </td>
-    </tr>
-  </table>
+ <p align="center"><br>  
+ <p align="center">  <table>
+ <p align="center">    <tr>
+ <p align="center">      <td>
+ <p align="center">     Life is evil! <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/4902a914-c6e5-426a-bdfb-be3e9ed2d5bb" />
+ <p align="center">      </td>
+ <p align="center">    </tr>
+ <p align="center">  </table>
 
-[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Nuke%20shots&extraCount=60000&color=632798&labelColor=512681)](https://hits.sh/github.com/Chemicalshot/)
+ <p align="center">
+ <p align="center">
 
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=26&duration=2500&pause=100&color=A660F7&width=435&lines=Jealousy%2C+Jealousy%2C+JEALOUSY!;It's+such+a+evil+thing..;To+watch+someone+have;jealousy%2C+jealousy%2C+JEALOUSY!)](https://git.io/typing-svg)
+ <p align="center"><img width="290" height="283" alt="image" src="https://github.com/user-attachments/assets/67ee1709-f50d-445e-9547-406242639dd5" />
 
-<img width="266" height="242" alt="image" src="https://github.com/user-attachments/assets/10411b13-3b38-42a1-adf7-986ad631bf40" />
+
 
 
 $${\color{#FFFFFF} WAIT! \space Sign \space My \space ata \space and \space check \space sp \space for \space info.}$$</summary>
