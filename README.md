@@ -39,6 +39,8 @@ AND friends w no github, hmu if you wanna be added I have so many of u chungies 
 
 [Straw](https://spokelings.straw.page/) IMPORTANT!
 
+[Shenanigans straw](https://loppezzs.straw.page/)
+
 Random urls
 
 [guns.lol](https://guns.lol/spokeisheres)
