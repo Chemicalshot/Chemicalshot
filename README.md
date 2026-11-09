@@ -47,7 +47,7 @@ Random urls
 
 [Frozi 1](https://frozi.lol/wemmbu)
 
-[Frozi 2](https://frozi.lol/dol9hin)
+[Frozi 2](https://frozi.lol/flamefrags)
 
 [Frozi 3](https://frozi.lol/parrotx2)
 
