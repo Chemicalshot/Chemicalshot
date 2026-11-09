@@ -47,6 +47,8 @@ Random urls
 
 [Frozi 2](https://frozi.lol/dol9hin)
 
+[Frozi 3](https://frozi.lol/parrotx2)
+
 
 
    <p align="center"><img width="373" height="231" alt="image" src="https://github.com/user-attachments/assets/91e2a902-2c01-4b0c-9927-3756c16e1e70" />
