@@ -12,7 +12,8 @@
  <p align="center"><a href="https://hits.sh/github.com/Chemicalshot/"><img alt="Hits" src="https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=NULL&extraCount=70000&color=0c0f1f&labelColor=000001"/></a>
   
    <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Georgia&size=18&duration=2500&pause=100&color=FFFFFF&center=true&vCenter=true&width=435&lines=Are+you+seriously+going+back%3F;THIS+IS+WHAT+JAMATO+WANTS!;HE+WANTS+YOU+TO+RUN+AWAY+FROM+ME!" alt="Typing SVG" /></a>
- <p align="center"><img width="290" height="283" alt="image" src="https://github.com/user-attachments/assets/67ee1709-f50d-445e-9547-406242639dd5" />
+ <p align="center"><img width="268" height="298" alt="image" src="https://github.com/user-attachments/assets/deccb4df-a491-441c-8329-3a69de51b07b" />
+
 
 
  <details>
