@@ -61,5 +61,8 @@ Random urls
    <p align="center"><img width="373" height="231" alt="image" src="https://github.com/user-attachments/assets/91e2a902-2c01-4b0c-9927-3756c16e1e70" />
 
 
+https://github.com/user-attachments/assets/feda533b-37a9-4cd7-81a7-3572b0a32d79
+
+I love this oh my god (video creds to @SnazzyVEVO on yt)
 
 
