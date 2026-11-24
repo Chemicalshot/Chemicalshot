@@ -13,8 +13,10 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2002&pause=100&color=F7B0B0&width=435&lines=I+fucking+shot+her;nah+I'm+just+kidding%2C;I'm+a+lawyers+daughter.)](https://git.io/typing-svg)
  <p align="center"><img width="686" height="647" alt="image" src="https://github.com/user-attachments/assets/5c9a28ea-9405-4410-ac7e-7435c767bdd6" />
-
-
+  
+  [Ata](https://witheredes.atabook.org/) sign it :-)
+  
+  [Straw](https://spokelings.straw.page/) IMPORTANT!
 
  <details>
       <summary> Click to see my trio, party, closest friends and other oomfies! </summary>
@@ -36,9 +38,6 @@ AND friends w no github, hmu if you wanna be added I have so many of u chungies 
 
 
 
-[Ata](https://witheredes.atabook.org/) sign it :-)
-
-[Straw](https://spokelings.straw.page/) IMPORTANT!
 
 [Shenanigans straw](https://loppezzs.straw.page/)
 
