@@ -1,4 +1,4 @@
-<img width="1280" height="50" alt="tumblr_d6814e19fb04277fdf218961874010af_c8d3747a_1280" src="https://github.com/user-attachments/assets/56535eea-d410-49df-8e96-2b0d32fcf4d0" />
+
 
  <p align="center"><br>  
  <p align="center">  <table>
@@ -9,10 +9,10 @@
  <p align="center">    </tr>
  <p align="center">  </table>
 
- <p align="center"><a href="https://hits.sh/github.com/Chemicalshot/"><img alt="Hits" src="https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=NULL&extraCount=70000&color=0c0f1f&labelColor=000001"/></a>
-  
-   <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Georgia&size=18&duration=2500&pause=100&color=FFFFFF&center=true&vCenter=true&width=435&lines=Are+you+seriously+going+back%3F;THIS+IS+WHAT+JAMATO+WANTS!;HE+WANTS+YOU+TO+RUN+AWAY+FROM+ME!" alt="Typing SVG" /></a>
- <p align="center"><img width="268" height="298" alt="image" src="https://github.com/user-attachments/assets/deccb4df-a491-441c-8329-3a69de51b07b" />
+[![Hits](https://hits.sh/github.com/Chemicalshot.svg?label=Bunnies&extraCount=80000&color=fce6d9&labelColor=ff6868)](https://hits.sh/github.com/Chemicalshot/)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2002&pause=100&color=F7B0B0&width=435&lines=I+fucking+shot+her;nah+I'm+just+kidding%2C;I'm+a+lawyers+daughter.)](https://git.io/typing-svg)
+<img width="686" height="647" alt="image" src="https://github.com/user-attachments/assets/5c9a28ea-9405-4410-ac7e-7435c767bdd6" />
 
 
 
@@ -58,7 +58,8 @@ Random urls
 
 
 
-   <p align="center"><img width="373" height="231" alt="image" src="https://github.com/user-attachments/assets/91e2a902-2c01-4b0c-9927-3756c16e1e70" />
+<img width="611" height="334" alt="Screenshot 2026-11-22 204442" src="https://github.com/user-attachments/assets/3c73ade9-0e55-4dfa-a461-69ece15f0032" />
+me and bro when
 
 
 https://github.com/user-attachments/assets/feda533b-37a9-4cd7-81a7-3572b0a32d79
