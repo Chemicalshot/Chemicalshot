@@ -11,13 +11,13 @@
 
 [![Hits](https://hits.sh/github.com/Chemicalshot.svg?label=Bunnies&extraCount=80000&color=fce6d9&labelColor=ff6868)](https://hits.sh/github.com/Chemicalshot/)
 
-
-
- <p align="center"><img width="686" height="647" alt="image" src="https://github.com/user-attachments/assets/5c9a28ea-9405-4410-ac7e-7435c767bdd6" />
-  
   [Ata](https://witheredes.atabook.org/) sign it :-)
   
   [Straw](https://spokelings.straw.page/) IMPORTANT!
+
+ <p align="center"><img width="686" height="647" alt="image" src="https://github.com/user-attachments/assets/5c9a28ea-9405-4410-ac7e-7435c767bdd6" />
+  
+
 
  <details>
       <summary> Click to see my trio, party, closest friends and other oomfies! </summary>
