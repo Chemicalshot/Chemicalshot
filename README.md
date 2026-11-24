@@ -11,7 +11,8 @@
 
 [![Hits](https://hits.sh/github.com/Chemicalshot.svg?label=Bunnies&extraCount=80000&color=fce6d9&labelColor=ff6868)](https://hits.sh/github.com/Chemicalshot/)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2002&pause=100&color=F7B0B0&width=435&lines=I+fucking+shot+her;nah+I'm+just+kidding%2C;I'm+a+lawyers+daughter.)](https://git.io/typing-svg)
+
+
  <p align="center"><img width="686" height="647" alt="image" src="https://github.com/user-attachments/assets/5c9a28ea-9405-4410-ac7e-7435c767bdd6" />
   
   [Ata](https://witheredes.atabook.org/) sign it :-)
