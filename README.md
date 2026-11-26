@@ -1,5 +1,5 @@
 
-<p align="center">$\color{#824BBF}{\textsf{Comp}}$ $\color{#A152D3}{\textsf{ter}}$ $\color{#E1B9F9}{\textsf{star ^_^}}$
+<p align="center">$\color{#824BBF}{\textsf{Comp}}$ $\color{#A152D3}{\textsf{ter}}$ $\color{#E1B9F9}{\textsf{star}}$
 
 
 <div align="center">
