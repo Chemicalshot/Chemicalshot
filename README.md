@@ -5,7 +5,7 @@
 <div align="center">
   <table>
     <tr>
-      <td><img src="YOUR_GIF_URL" width="36"></td>
+      <td>$\color{#AE62DE}{\textsf{Murder}}$$\color{#E1B9F9}{\textsf{Weapon 𖦹}}$</td>
     </tr>
   </table>
 </div>
