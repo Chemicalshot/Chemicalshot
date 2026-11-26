@@ -5,7 +5,7 @@
 <div align="center">
   <table>
     <tr>
-      <td>♡</td>
+      <td><img src="YOUR_GIF_URL" width="36"></td>
     </tr>
   </table>
 </div>
