@@ -5,7 +5,7 @@
 <div align="center">
   <table>
     <tr>
-      <td>$\color{#AE62DE}{\textsf{Murder}}$$\color{#E1B9F9}{\textsf{Weapon}}$</td>
+      <td>$\color{#AE62DE}{\textsf{Murder}}$ $\color{#E1B9F9}{\textsf{Weapon}}$</td>
     </tr>
   </table>
 </div>
