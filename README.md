@@ -1,19 +1,26 @@
 
+<p align="center">$\color{#824BBF}{\textsf{Comp}}$ $\color{#A152D3}{\textsf{ter}}$ $\color{#E1B9F9}{\textsf{star ^_^}}$
 
- <p align="center"><br>  
- <p align="center">  <table>
- <p align="center">    <tr>
- <p align="center">      <td>
- <p align="center">     ♡
- <p align="center">      </td>
- <p align="center">    </tr>
- <p align="center">  </table>
 
-[![Hits](https://hits.sh/github.com/Chemicalshot.svg?label=Bunnies&extraCount=80000&color=fce6d9&labelColor=ff6868)](https://hits.sh/github.com/Chemicalshot/)
+<div align="center">
+  <table>
+    <tr>
+      <td>♡</td>
+    </tr>
+  </table>
+</div>
 
-  [Ata](https://witheredes.atabook.org/) sign it :-)
+ <p align="center"><a href="https://hits.sh/github.com/Chemicalshot/"><img alt="Hits" src="https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=wemmbu%20plushies&extraCount=100000&color=6737ba&labelColor=2d0c4f"/></a>
+
+
+
+<p align="center">
+  <a href="https://witheredes.atabook.org/?page=1">Atabook</a> sign this!
+</p> 
   
-  [Straw](https://spokelings.straw.page/) IMPORTANT!
+<p align="center">
+  <a href="https://spokelings.straw.page/">strawpage</a> rbyi
+</p>
 
  <p align="center"><img width="686" height="647" alt="image" src="https://github.com/user-attachments/assets/5c9a28ea-9405-4410-ac7e-7435c767bdd6" />
   
