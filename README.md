@@ -22,7 +22,8 @@
   <a href="https://spokelings.straw.page/">strawpage</a> rbyi
 </p>
 
- <p align="center"><img width="686" height="647" alt="image" src="https://github.com/user-attachments/assets/5c9a28ea-9405-4410-ac7e-7435c767bdd6" />
+ <p align="center"><img width="2048" height="1394" alt="image" src="https://github.com/user-attachments/assets/7b8fe0e8-e765-4740-8c96-111030d60661" />
+
   
 
 
@@ -65,8 +66,7 @@ Random urls
 
 
 
-<img width="611" height="334" alt="Screenshot 2026-11-22 204442" src="https://github.com/user-attachments/assets/3c73ade9-0e55-4dfa-a461-69ece15f0032" />
- <p align="center">me and bro when
+
 
 
 https://github.com/user-attachments/assets/feda533b-37a9-4cd7-81a7-3572b0a32d79
