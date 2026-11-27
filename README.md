@@ -60,7 +60,7 @@ Random urls
 
 [Frozi 3](https://frozi.lol/parrotx2)
 
-[Frozi 4](https://frozi.lol/Loppezz)
+[Frozi 4](https://frozi.lol/dol9hin)
 
 [Frozi 5](https://frozi.lol/Princezam)
 
